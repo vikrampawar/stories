@@ -10,7 +10,7 @@ Those that are marked [X] are in a state that can be read.
 
 ## Work in progress
 
-## Not really stories]
+## Not really stories
 - [Why Github](pages/WhyGithub.md)
 - [About He/Him, She/Her](pages/AboutHeHimAndSheHer.md) 
   
