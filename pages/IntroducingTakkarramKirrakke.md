@@ -9,12 +9,12 @@ But, I think I know why he created me.
 He always has grandiose visions of the future.
 Some sinister of the heart might even say delusions.
 He thinks he would be world renowned one day and wants to take steps now to make sure that some black hearted person would not make his life difficult for him then for not having taken these careful steps now. 
-If you are anything like the cognoscenti that I happen to be hobnob with, no doubt you are saying something like 'world renowned, my ass', 'careful steps - my foot' or something along those lines to yourself.
+If you are anything like the cognoscenti that I happen to hobnob with, no doubt you are saying something like 'world renowned, my ass', 'careful steps - my foot' or something along those lines to yourself.
 And, I'd sympathize with your sentiment.
 
 But now, you can begin to see why he created me.
 It is precisely these kinds of reactions from the cognoscenti that he wants directed towards me, Takkarram Kirrakke, and not he, the author.
-Although the author has high regard for his readers, he nevertheless knows that there may be a small percentage of readers, who are , for the lack of better phrase, 'slow on the uptake'. 
+Although the author has high regard for his readers, he nevertheless knows that there may be a small percentage of readers, who are , for the lack of a better phrase, 'slow on the uptake'. 
 
 Although they may harbour no ill intentions, they might assume whatever the author has written has taken place, or that when the author says I, he means I, the author. 
 
@@ -54,8 +54,15 @@ After so choosing, they might begin working on the first of the 'r's and they mi
 And after a bit more of effort, they might even successfully negotiate the second 'r'.
 But, they've left the soft 'k's.
 So, the utterance, however laboured, doesn't resemble anything like my first name or the surname.
-If I'm lucky, I might make out they they were trying out utter the first name or the surname.
-Sometimes it is hard to establish even that.
+If I'm lucky, I might make out that the sounds that were produced after all the facial contortions was their best attempt at uttering my first name or the surname.
+Sometimes it is hard to establish if it was the first name or the surname.
+Indeed, I would not know that it was me they were referring to if I was not the direct witness of the indescribable forms their faces were assuming before the sound emanated from it.
+
+So it is safe to assume that no English speaker would bear such a name. Note that here I meant bear in one sense and not the other, also I meant bear not bare, although, if I did interchange, the difference would be too subtle to escape even the finest combers of the strands of the English language.
+
+Now it must be clear as a crystal that it's a fictional name and the possibility that anybody would bear that name is so remote as to be considered nonexistent.
+
+
 
 
 
