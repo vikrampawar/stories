@@ -29,13 +29,13 @@ Just to clarify any doubts, so that we have everybody onboard, here when I said 
 If you are concerned about the the profusion of 'k's and 'r's in my name, it is his attempt to make my name unique. 
 So unique, that there's only one of me.
 You might say, 'unique' normally implies precisely that, and you might even end it with 'you ass'.
-But you know, it never hearts to be careful.
-To elaborate on points that most think doesn't need any elaboration.
+But you know, it never hurts to be careful.
+To elaborate on points that most think don't need any elaboration.
 
 I'm diverting from the topic.
 When you say my name, you have to roll the 'r's.
 If you do not roll the 'r', it is not my name.
-For all the good things things we can say about an English speaker, there is a weakness the e.s possesses that the author knows only too keenly about.
+For all the good things we can say about an English speaker, there is a weakness the e.s possesses that the author knows only too keenly about.
 That when confronted with an 'r' that has to be rolled, he looks at it askance.
 He deliberates.
 He dilly-dallys.
