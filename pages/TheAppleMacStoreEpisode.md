@@ -1,4 +1,6 @@
-# The Apple Mac Store Episode
+>[Home](../README.md)
+
+# The Apple Mac Store Episode [X]
 
 I still remember the day in 2013 when I gingerly walked into the Apple store. 
 I was like that someone who was bewitched by the sirens in the Greek mythology, who was the chap, my memory escapes me, but you know who I mean. 
@@ -66,3 +68,5 @@ And then, at an even faster pace, emptied everything there was in my bank accoun
 This normally would make me squirm internally, my soul being pulled and stretched into contorted shapes that souls are not accustomed to assume.
 But on this occasion, with the sunny thoughts of being able to spend the rest of my life with this adored object filling every nerve cell in my brain, my soul didn't stir. 
 It lay satisfied as the python that has swallowed more than its usual quota of lamb and doesn't look like it would think of food for a considerable duration of time. 
+
+>[Home](../README.md)
