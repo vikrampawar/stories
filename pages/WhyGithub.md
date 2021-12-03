@@ -35,10 +35,3 @@ Now knowing enough about the workings of the human heart, especially his own, he
 He has taken the prudent action of keeping as much of a distance from the immediate feedback from the readers as is possible while at the same time making it easy for the right reader to find what she wishes to read.
 
 >[Home](../README.md)
-
-
-
-
-
-
->[Home](../README.md)
