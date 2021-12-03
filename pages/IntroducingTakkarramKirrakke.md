@@ -62,21 +62,6 @@ So it is safe to assume that no English speaker would bear such a name. Note tha
 
 Now it must be clear as a crystal that it's a fictional name and the possibility that anybody would bear that name is so remote as to be considered nonexistent.
 
+Also the author considers that any non English speakers would most likely not take any offence against something that they are theoretically not supposed to understand.
+However delusional the author might get sometimes, he recognizes that he'll never be so famous that somebody would take offence at what he has or has not said or written just for the publicity that they are sure that they'll be able to generate from that slander.
 
-
-
-
-However, if is faced with a battery of 'r', soft 'k's, 
-
-
-
-
-_________________
-He has carefully created my name.
-
-
-When they read something, the only grasp what's said plainly.
-They read an author saying 'X', and think the 
-
-
-On precisely what grounds, or 
