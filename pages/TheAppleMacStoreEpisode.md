@@ -21,7 +21,7 @@ When I was deeply immersed in this trance-like state - my mind filled with all h
 When I turned towards what sought my attention, I noticed a salesman standing right next to me - if I can say right next to me even when somebody stands so close to you with only a single layer of molecules separating them from you - smiling head to toe.
 
 He asked me what I wanted.
-I told him that exactly what I wanted.
+I told him exactly what I wanted.
 
 He gently enquired again, did I really mean the 27 inch model when I said I want the 27 inch model.
 Maybe my face looked to him as if it belonged to somebody who would want a 21 inch model and not the 27 inch model.
@@ -35,7 +35,7 @@ If I was in the usual not so sunny mood, I would have barked at him, why a man w
 
 Anybody with an ounce of grey matter in their bean would know they should ask for a 21 inch model if it is indeed 21 inch model that they desire.
 
-In the present case, that I'm elaborating, I clearly mentioned I wanted 27 inch model, so 27 inch model it was that I actually wanted.
+In the present case, that I'm elaborating, I had clearly mentioned that I wanted a 27 inch model, so 27 inch model it was that I had actually wanted.
 
 Just to clarify any confusion in the minds of my reader - it was the 27 inch model that I indeed wanted, and also asked for, and if the reader reads till the end would gather that it was 27 inch model that I indeed bought. 
 
@@ -56,7 +56,7 @@ One has to be extremely cautious using these words.
 A syllable here or a syllable there that's not in the right place, and it means something else altogether different.
 
 Now coming back on track to the salesman's enquiry.
-He wanted confirmation that I indeed wanted a 4TB HDD and not 500GB HDD, or a 1TB HDD, as any other sane person he is probably accustomed to offer his custom wanted. 
+He wanted confirmation that I indeed wanted a 4TB HDD and not a 500GB HDD, or even a 1TB HDD, as any other sane person he is probably accustomed to offer his custom, wanted. 
 
 I satisfied him yet again, by reaffirming what I had already stated to him in no uncertain terms previously, but now with a cheerfulness that could be only matched by the birds that leave their eggs when they are out to get food, and and on return find where there were eggs, are now little chicks, squeaking their tiny hearts out for their mothers they are seeing for the first time. 
 
