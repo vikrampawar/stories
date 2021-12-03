@@ -7,6 +7,7 @@ If you ask the author, he - yes a he - he would say all the expected good things
 But, I think I know why he created me.
 
 He always has grandiose visions of the future.
+Some sinister of the heart might even say delusions.
 He thinks he would be world renowned one day and wants to take steps now to make sure that some black hearted person would not make his life difficult for him then for not having taken these careful steps now. 
 If you are anything like the cognoscenti that I happen to be hobnob with, no doubt you are saying something like 'world renowned, my ass', 'careful steps - my foot' or something along those lines to yourself.
 And, I'd sympathize with your sentiment.
@@ -25,7 +26,7 @@ Just to clarify any doubts, so that we have everybody onboard, here when I said 
 
 If you are concerned about the the profusion of 'k's and 'r's in my name, it is his attempt to make my name unique. 
 So unique, that there's only one of me.
-You might say, 'unique' normally implies precisely that.
+You might say, 'unique' normally implies precisely that, and you might even end it with 'you ass'.
 But you know, it never hearts to be careful.
 To elaborate on points that most think doesn't need any elaboration.
 
