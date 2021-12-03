@@ -32,10 +32,23 @@ To elaborate on points that most think doesn't need any elaboration.
 I'm diverting from the topic.
 When you say my name, you have to roll the 'r's.
 If you do not roll the 'r', it is not my name.
-For all the good things things we can say about an English speaker, there is a weakness the English speaker possesses that the author knows only too keenly about.
+For all the good things things we can say about an English speaker, there is a weakness the e.s possesses that the author knows only too keenly about.
+That when confronted with an 'r' that has to be rolled, he looks at it askance.
+He deliberates.
+He dilly-dallys.
+And when he gathers the courage, he rolls one 'r'.
+If he is in a particularly effervescent mood, he might even roll another 'r'.
+There is yet another weakness that he possesses, that he may not even know about.
+That is his blissful ignorance to the existence of the soft 'k'.
+
+As we have established the peculiar weaknesses of the English speaker, you can know his reaction when he has to face the prospect of uttering my name.
+
+However, if is faced with a battery of 'r', soft 'k's, 
 
 
 
+
+_________________
 He has carefully created my name.
 
 
