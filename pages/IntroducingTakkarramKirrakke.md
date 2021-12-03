@@ -42,7 +42,22 @@ If he is in a particularly effervescent mood, he might even roll another 'r'.
 There is yet another weakness that he possesses, that he may not even know about.
 That is his blissful ignorance to the existence of the soft 'k'.
 
-As we have established the peculiar weaknesses of the English speaker, you can know his reaction when he has to face the prospect of uttering my name.
+As we have established the peculiar weaknesses of the English speaker, you can now know his reaction when he has to face the prospect of uttering my name.
+Even the most ardent among them would go round the issue.
+I mean they'll walk around it.
+They'll look at both the first name and the surname.
+They'll look at the surname and then the first name.
+They'll say to themselves, let me try the first name, or the surname as the case may be.
+They are sure that saying both at the same time will require the proficiencies that they are sure they will never even attempt to build.  
+We cannot rule out the fact that there may be some individual peculiarities within the speakers which makes them markedly more proficient at the syllables that appear in the first name or the surname as the case may be.
+After so choosing, they might begin working on the first of the 'r's and they might get over it.
+And after a bit more of effort, they might even successfully negotiate the second 'r'.
+But, they've left the soft 'k's.
+So, the utterance, however laboured, doesn't resemble anything like my first name or the surname.
+If I'm lucky, I might make out they they were trying out utter the first name or the surname.
+Sometimes it is hard to establish even that.
+
+
 
 However, if is faced with a battery of 'r', soft 'k's, 
 
