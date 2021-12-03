@@ -1,4 +1,6 @@
-# Introducing Takkarram Kirrakke
+>[Home](../README.md)
+
+# Introducing Takkarram Kirrakke [X]
 
 I, Takkarram Kirrakke, am a figment of the author's imagination.
 
@@ -70,3 +72,4 @@ Now it must be clear as a crystal that it's a fictional name and the possibility
 Also the author considers that any non English speakers would most likely not take any offence against something that they are theoretically not supposed to understand.
 However delusional the author might get sometimes, he recognizes that he'll never be so famous that somebody would take offence at what he has or has not said or written just for the publicity that they are sure that they'll be able to generate from that slander.
 
+>[Home](../README.md)
