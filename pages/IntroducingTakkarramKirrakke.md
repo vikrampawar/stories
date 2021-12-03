@@ -48,14 +48,19 @@ I mean they'll walk around it.
 They'll look at both the first name and the surname.
 They'll look at the surname and then the first name.
 They'll say to themselves, let me try the first name, or the surname as the case may be.
+
 They are sure that saying both at the same time will require the proficiencies that they are sure they will never even attempt to build.  
+
 We cannot rule out the fact that there may be some individual peculiarities within the speakers which makes them markedly more proficient at the syllables that appear in the first name or the surname as the case may be.
+
 After so choosing, they might begin working on the first of the 'r's and they might get over it.
 And after a bit more of effort, they might even successfully negotiate the second 'r'.
 But, they've left the soft 'k's.
 So, the utterance, however laboured, doesn't resemble anything like my first name or the surname.
+
 If I'm lucky, I might make out that the sounds that were produced after all the facial contortions was their best attempt at uttering my first name or the surname.
 Sometimes it is hard to establish if it was the first name or the surname.
+
 Indeed, I would not know that it was me they were referring to if I was not the direct witness of the indescribable forms their faces were assuming before the sound emanated from it.
 
 So it is safe to assume that no English speaker would bear such a name. Note that here I meant bear in one sense and not the other, also I meant bear not bare, although, if I did interchange, the difference would be too subtle to escape even the finest combers of the strands of the English language.
