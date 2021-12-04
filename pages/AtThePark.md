@@ -166,7 +166,15 @@ And as he expected, Andagamma who was very cross with Takkarram and was happy fo
 
 Takkarram knew what to do. He looked dejectedly at Chikka and said, 'Give me all the other snacks you have as well', and hoping this will satisfy this money guzzling monster. 
 
-Surprisingly, even this did not satisfy our financial genius.
+Surprisingly, even this did not satisfy our financial genius and continued looking at Andagamma and turning the dial on his haunting eyes look.
+
+At this point, even Andagamma got curious to see what our fellow had in his mind, so she again looked at Takkarram.
+
+Takkarram looked flabbergasted. He said, 'What do you want now, you little devil? Do you want me to adopt you?'.
+
+Chikka promptly replied, 'No, sir. I think I can take of myself very well. All I'm thinking is what will I do with this empty basket now that there is nothing in it to seel. Would you mind buying that as well, it will be easy for you to carry all the snacks that you've bought.'
+
+
 
 
 
