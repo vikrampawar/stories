@@ -31,7 +31,15 @@ But anybody looking at Takkarram Kirrakke and Andagamma Adaragottu sitting so ap
 
 It's not just the author and the reader that are keenly aware of this couple.
 There's one little blighter who has been following them even more closely than us.
+
 The locals call him Chikka.
 It's hard to say how old he is.
+Certainly below 15.
+Is he above 10? As I said, it's hard to know.
+It's also very difficult to know where he comes from, where he lives, whether he has any family.
+
+All we know is that he has a shrewd business sense that'll make Babbani, the local billionaire business magnet, proud if he possessed that knowledge at that tender age.
+
+
 
 
