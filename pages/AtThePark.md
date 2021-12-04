@@ -52,11 +52,11 @@ The patch wasn't there when Takkarram and Andagamma arrived a few minutes earlie
 It's formed because Takkarram has been picking one strand at a time from that spot and putting it on his right side.
 He has been doing this since he arrived.
 
-The rate of destruction would make the destroyers of the Brazilian Amazon forest proud. They'd stand in queue to take lessons.
+The rate of destruction would make the destroyers of the Brazilian Amazon forest proud. 
 
 The reason for this is that Andagamma has been annoyed at him.
 She has been giving him fearsome looks, one would say the park keepers, if they got wind of it, would come to take notes.
 
-
-
+When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose poster Takkarram and grown up seeing everyday.
+God knows how this goddess looks in real life, but the portrayal of this Goddess by the poster makers
 
