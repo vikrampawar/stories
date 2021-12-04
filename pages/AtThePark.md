@@ -65,7 +65,7 @@ Unfortunately that may not be possible any time soon.
 
 It makes one wonder, what would be the inspiration for these poster makers? What makes their imagination so fertile.
 
-One could imagine that these poster makers must be male.
+One, who is not partial to these poster makers could imagine that these children of this exotic artform must be male.
 This must be their way of letting out something that's happening in their lives without actually saying it directly.
 
 However, I think we are digressing.
@@ -74,7 +74,7 @@ In the meantime, Takkarram having settled his blood flow with the grass picking 
 
 He said 'Anda'.
 
-He heard 'Huu', which was not really what Andagamma said. It was just Andagamma's way of acknowledging and not acknowledging what she heard. This was the sound produced from her letting out a jet of air through her nostrils. If we have not seen it, we'd not believe those fine delicate nostrils could take this force of air and still remain so fine and delicate.
+He heard 'Huu', which was not really what Andagamma said. It was just Andagamma's way of acknowledging and not acknowledging at the same time what she has heard. This was the sound produced from her letting out a jet of air through her nostrils. If we have not seen it, we'd not believe those fine delicate nostrils could take this force of air and still remain so fine and delicate.
 
 The courage that Takkarram mustered, evaporated.
 
@@ -94,17 +94,17 @@ More grass.
 
 The last 'Anda' did not come from Takkarram because he has not picked up more grass yet. 
 So he came out of his present state in a jerk.
-He looked towards where the last 'Anda' emanated from.
+He looked around to see where the last 'Anda' emanated from.
 It seemed to be from beyond the grass mound on his right.
-He wondered where it came from, as he was not aware of his own creation.
-He dispersed the grass curious to see.
+He wondered where it came from, as he was not aware of his own phenomenal creation.
+He dispersed the grass curious to see the source.
 There looking at him intently, he found Chikka.
 
 'Who are you? Why did you say "Anda"'? asked Takkarram impatiently.
 
 'Sir, I wanted to help you'.
 
-'Whaaat !!??... What do you mean help, what help?'. One could sense a bit of irriation in his voice. Here he was trying to woo his beloved - one would imagine, as in the present case, it looks quite untenable proposition -  and this little blot on the landscape coming in his way.
+'Whaaat !!??... What do you mean help, what help?'. One could sense a bit of irriation in his voice. Here he was trying to woo his beloved - one would imagine, as in the present case, it looks quite untenable proposition -  and this little blot on the landscape coming in his way putting spanner in the works.
 
 'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keeper after what you've done.'
 
