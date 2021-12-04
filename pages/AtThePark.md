@@ -16,27 +16,14 @@ The keener of the eye would see that there is one couple sitting in the park tha
 They've sat so far apart that it is a borderline case to say that they've sat together.
 If fact, if one of them turned their faces away, you may think that they are not together.
 
-A local that's conversant with the skills of the auto rickshaw drivers in that place would think it a matter course for one to go through them.
+A local that's conversant with the skills of the auto rickshaw drivers in that place would think it a matter of course for one to go through them.
 And if Dassamia park keepers were any less fearsome, we'd have in fact seen at least some of them going between them by now.
 
 As we said the sun has relaxed and the wind is working its magic.
 One would say the odours hitting the nostrils is divine, just if they are willing to ignore the fact that it could also be called bovine.
 A fresh dump of cow dung is also making its presence felt along with all the others smells permeating the place.
 If fact, those that are keen accumulators of the knowledge about the bovine excreta would say that it was delivered not so long ago.
-It still has the sweetness that's characteristic of the dump that's fresh.
+It still retained the sweetness that's characteristic of the dump that's fresh and not yet been caked by the careless park walkers.
 
+That is to say that it's as pleasant as it could be in mid may evening in Dyrabad.
 
-It's as pleasant as it could be in mid may evening in Dyrabad.
-
-
-
-
-
-As if it's taken the cue, the wind has 
-
-
-
-
-
-
->[Home](../README.md)
