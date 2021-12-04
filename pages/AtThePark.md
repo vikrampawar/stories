@@ -44,5 +44,12 @@ He is carrying a little basket that has various kinds of dry snacks, the chief a
 
 If Takkarram were in any normal situation, he would have seen that Chikka has been hiding behind the little grass mound that's freshly developed on his right side.
 The reader might be wondering where this grass mound has come from.
+It's come from the barren patch in front of Takkarram.
+Lest the reader attributes the barren patch to the carelessness of the aforementioned park keepers, who are in addition to being fearsome are excellent keepers of the grass in Dassamia. If they had any inkling that this patch was freshly created in the short span of time they would descend upon the culprits with their legendary fearsomeness.
+
+The patch wasn't there when Takkarram and Andagamma arrives a few minutes earlier.
+It's formed because Takkarram has been picking one strand at a time from that spot and putting it on his right side.
+He has been doing this since he arrived.
+
 
 
