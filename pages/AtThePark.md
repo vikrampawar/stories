@@ -104,11 +104,24 @@ There looking at him intently, he found Chikka.
 
 'Sir, I wanted to help you'.
 
-'Whaaat !!??... What do you mean help, what help?'.
+'Whaaat !!??... What do you mean help, what help?'. One could sense a bit of irriation in his voice. Here he was trying to woo his beloved - one would imagine, as in the present case, it looks quite untenable proposition -  and this little blot on the landscape coming in his way.
 
-'Sir, I noticed you were having trouble calling mam. I've been watching your for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it.'
+'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keeper after what you've done.'
 
-At which point, Takkarram although lots of questions came at once to him, just said, '
+At which point, lot of questions flitted through Takkarram's mind fighting for attention, and in a separate region of his brain, even several emotions were in a stuggle of their own to bubble up on top.  
+
+At last it was shame that won. 
+
+Takkarram felt a bit ashamed that this tiny creature has not only grasped his predicament, but is also offering a solution, and it looked like he is quite capable of carrying it out to its logical end. And as shame made way, his heart was filled with admiration. He then said with a bit more softness in his voice than before, 'I don't want any help. Why were you listening to our conversation in the first place?'.
+
+'Sir, I came to sell the peanuts.', beckoning to his basket, 'I tried to grab your attention several times discreetly by walking in between you both, but you did not notice. I felt there was some tension in the situation. I thought I'll wait for the tension to subside a bit and  then ask you to buy peanuts.So, I settled beside you waiting for the right moment.'
+
+'You didn't seem like you were waiting. You were hiding behind the mound of grass.'
+
+'Sir, it was the mound you created'.
+
+Takkarram gave start not unlike that the sacrificial goat 
+
 
 
 
