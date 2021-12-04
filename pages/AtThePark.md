@@ -139,6 +139,7 @@ Takkaram felt compelled to react. He said, 'but, but, look at those ghastly thin
 
 'I was thinking of something else, but yes, your description suits it better', Takkarram said, with questioning look on his face as if to ask if they are actually that.
 
+Chikka exploded into a laughing fit. It's remarkable how his emotions change so quickly. His laugh was a series of halts and explosions of noises that come out of an exicited smaller than usual pony that started out being a donkey, but was at the last moment shifted course to become a pony.
 
 
 
