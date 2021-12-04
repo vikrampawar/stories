@@ -124,14 +124,14 @@ Takkarram gave a start as if his Rajdoot kick lever rebounded. He winced a littl
 
 Chikka nodded in the affirmative. He was glad that this transaction seemed like it's going towards fruitful conclusion.
 
-He looked at the basket and was taken aback by the rovolting looking pieces that was expected to buy.
+He looked at the basket and was taken aback by the revolting looking pieces that he was expected to buy.
 
-Chikka being quite accustomed to this reaction from his wouldbe buyers, was ready with his weapon and he was keen to deploy it.
+Chikka being quite accustomed to this reaction from his would-be buyers, was ready with his weapon and he was keen to deploy his arsenal.
 
-He has realised at at very young age that there's a strange power in his eyes. Any maketing department of a thriving charity concern would pick him up instantly for their commericials. If commericials is the right word, or should I say an 'ad'. Commercial seems too much like, you know, money.
-Let's say an 'ad'. I'm referring to those that suddenly jump on you out of nowhere when you are cosily wathching your favourite serial or a match. Here you are in your happy little world, having pleasant time, and then you are confronted with a pair of haunting eyes, the accompanying booming voice making you feel like a cold hearted person that has no right to the comforts you are having unless you donate sizable portion of your funds to the organisation that is doing all it can to save all those that possess such haunting eyes.
+He has realised at at very young age that there's a strange power in his eyes. Any marketing department of a thriving charity concern would pick him up instantly for their commercials. If commercials is the right word, or should I say an ad. Commercial has a pretty uncharitable financial sense to it.
+Let's settle with ad. I'm referring to those that suddenly jump on you out of nowhere when you are cosily watching your favorite serial or a match. Here you are in your happy little world, having pleasant time, and then you are confronted with a pair of haunting eyes, the accompanying booming voice making you feel like a cold hearted person that has no right to the comforts you are having unless you donate sizable portion of your funds to the organisation that is doing all it can to save all those that possess such haunting eyes.
 
-Chikka started turning the dial on his eyes such that the very eyes that were sparking with naughiness at his customers inability to speak to his beloved, suddenly took a turn to look a bit haunting as if he has not had food the whole day.
+Chikka started turning the dial on his eyes such that the very eyes that were sparkling with naughtiness at his customers inability to speak to his beloved, suddenly took a turn to look a bit haunting as if he has not had food the whole day.
 
 Takkaram felt compelled to react. He said, 'but, but, look at those ghastly things you call peanuts. God knows what you mixed in them. I don't like their color. They remind me of the, the..'
 
@@ -139,7 +139,7 @@ Takkaram felt compelled to react. He said, 'but, but, look at those ghastly thin
 
 'I was thinking of something else, but yes, your description suits it better', Takkarram said, with questioning look on his face as if to ask if they are actually that.
 
-Chikka exploded into a laughing fit. It's remarkable how his emotions change so quickly. His laugh was a series of halts and explosions of noises that come out of an exicited smaller than usual pony that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand to control himself.
+Chikka exploded into a laughing fit. It's remarkable quickly his emotions change. His laugh was a series of halts and explosions of noises that come out of an exicited smaller than usual pony that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand to control himself.
 
 When he recovered, he said, 'Sir, everybody says that. But why would I carry goat droppings?'
 
