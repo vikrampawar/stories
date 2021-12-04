@@ -40,6 +40,9 @@ It's also very difficult to know where he comes from, where he lives, whether he
 
 All we know is that he has a shrewd business sense that'll make Babbani, the local billionaire business magnet, proud if he possessed that knowledge at that tender age.
 
+He is carrying a little basket that has various kinds of dry snacks, the chief among them being spicy peanuts.
 
+If Takkarram were in any normal situation, he would have seen that Chikka has been hiding behind the little grass mound that's freshly developed on his right side.
+The reader might be wondering where this grass mound has come from.
 
 
