@@ -135,11 +135,20 @@ Chikka started turning the dial on his eyes such that the very eyes that were sp
 
 Takkaram felt compelled to react. He said, 'but, but, look at those ghastly things you call peanuts. God knows what you mixed in them. I don't like their color. They remind me of the, the..'
 
-'Sir, I are saying the goat droppings?'
+'Sir, I are you saying the goat droppings?'
 
 'I was thinking of something else, but yes, your description suits it better', Takkarram said, with questioning look on his face as if to ask if they are actually that.
 
-Chikka exploded into a laughing fit. It's remarkable how his emotions change so quickly. His laugh was a series of halts and explosions of noises that come out of an exicited smaller than usual pony that started out being a donkey, but was at the last moment shifted course to become a pony.
+Chikka exploded into a laughing fit. It's remarkable how his emotions change so quickly. His laugh was a series of halts and explosions of noises that come out of an exicited smaller than usual pony that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand to control himself.
+
+When he recovered, he said, 'Sir, everybody says that. But why would I carry goat droppings?'
+
+'I don't know, you tell me.', Takkarram couldn't help asking.
+
+'No, sir, I just put lots of masala on them. You'll know when you eat them.'
+
+
+
 
 
 
