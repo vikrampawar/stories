@@ -162,6 +162,14 @@ He realized that he's got a trapped customer.
 He wanted to make the most of this opportunity.
 So he, instead of jumping with joy that he could sell all his peanuts in one go, continued looking towards Andagamma, who was now very much into this game and helping him in his not so noble act.
 
+And as he expected, Andagamma who was very cross with Takkarram and was happy for any kind of retribution followed along. She looked coldly at Takkarram.
+
+Takkarram knew what to do. He looked dejectedly at Chikka and said, 'Give me all the other snacks you have as well', and hoping this will satisfy this money guzzling monster. 
+
+Surprisingly, even this did not satisfy our financial genius.
+
+
+
 
 
 
