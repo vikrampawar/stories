@@ -102,6 +102,13 @@ There looking at him intently, he found Chikka.
 
 'Who are you? Why did you say "Anda"'? asked Takkarram impatiently.
 
+'Sir, I wanted to help you'.
+
+'Whaaat !!??... What do you mean help, what help?'.
+
+'Sir, I noticed you were having trouble calling mam. I've been watching your for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it.'
+
+At which point, Takkarram although lots of questions came at once to him, just said, '
 
 
 
