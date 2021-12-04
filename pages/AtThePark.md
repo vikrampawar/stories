@@ -19,8 +19,14 @@ If fact, if one of them turned their faces away, you may think that they are not
 A local that's conversant with the skills of the auto rickshaw drivers in that place would think it a matter course for one to go through them.
 And if Dassamia park keepers were any less fearsome, we'd have in fact seen at least some of them going between them by now.
 
-As we said the sun has relaxed and the wind is working it's magic.
+As we said the sun has relaxed and the wind is working its magic.
+One would say the odours hitting the nostrils is divine, just if they are willing to ignore the fact that it could also be called bovine.
+A fresh dump of cow dung is also making its presence felt along with all the others smells permeating the place.
+
+
 It's as pleasant as it could be in mid may evening in Dyrabad.
+
+
 
 
 
