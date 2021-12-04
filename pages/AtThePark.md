@@ -139,15 +139,25 @@ Takkaram felt compelled to react. He said, 'but, but, look at those ghastly thin
 
 'I was thinking of something else, but yes, your description suits it better', Takkarram said, with questioning look on his face as if to ask if they are actually that.
 
-Chikka exploded into a laughing fit. It's remarkable quickly his emotions change. His laugh was a series of halts and explosions of noises that come out of an exicited smaller than usual pony that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand to control himself.
+Chikka exploded into a laughing fit. It's remarkable quickly his emotions change. His laugh was a series of halts and explosions of noises that could well have come out of an excited, smaller than usual pony, that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand as if to control himself.
 
 When he recovered, he said, 'Sir, everybody says that. But why would I carry goat droppings?'
 
 'I don't know, you tell me.', Takkarram couldn't help asking.
 
-'No, sir, I just put lots of masala on them. You'll know when you eat them.'
+'No, sir, I just put lots of black masala on them. You'll know when you eat them.'
 
-Takkarram didn't seem convinced. But, he knew that the little devil will not move without selling those sickly goat dropping like things. Also, from the corner of his eye, he could notice a certain softning of Andagamma's eyes, as she no doubt, began finding this little exchange amusing. So, he wanted to finish this business with Chikka, and get back to wooing Andagamma.
+Takkarram didn't seem convinced. He also didn't seem like he relished the opportunity. But, he knew that the little devil will not move without selling those sickly goat dropping like things. Also, from the corner of his eye, he could notice a certain softening of Andagamma's eyes, as she no doubt, began finding this little exchange amusing. So, he wanted to finish this business with Chikka, and get back to wooing Andagamma.
+
+'OK. Give me one packet.'
+
+Chikka looked at him as if to say, I did all this for you just for one packet and then he turned gaze towards Andagamma for some support. Andagamma promptly gave Takkarram a reproachful look.
+
+Takkarram already being tortured by Andagamma's angry looks, did want one more emotion added to them.
+
+
+
+
 
 
 
