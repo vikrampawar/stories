@@ -84,6 +84,27 @@ He picked some more grass and tried again.
 
 'Huu'.
 
+More grass.
+
+'Anda'.
+
+'Huu'.
+
+'Anda'.
+
+The last 'Anda' did not come from Takkarram because he has not picked up more grass yet. 
+So he came out of his present state in a jerk.
+He looked towards where the last 'Anda' emanated from.
+It seemed to be from beyond the grass mound on his right.
+He wondered where it came from, as he was not aware of his own creation.
+He dispersed the grass curious to see.
+There looking at him intently, he found Chikka.
+
+'Who are you? Why did you say "Anda"'? asked Takkarram impatiently.
+
+
+
+
 
 
 
