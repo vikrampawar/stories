@@ -20,14 +20,14 @@ A local that's conversant with the skills of the auto rickshaw drivers in that p
 And if Dassamia park keepers were any less fearsome, we'd have in fact seen at least some of them going between them by now.
 
 As we said the sun has relaxed and the wind is working its magic.
-One would say the odours hitting the nostrils is divine, just if they are willing to ignore the fact that it could also be called bovine.
-A fresh dump of cow dung is also making its presence felt along with all the others smells permeating the place.
+One would say the odours hitting the nostrils are divine, provided they are willing to discount one of them which has bovine origins, as a fresh dump of cow dung is also making its presence felt along with all the others smells permeating the place.
+
 If fact, those that are keen accumulators of the knowledge about the bovine excreta would say that it was delivered not so long ago.
 It still retained the sweetness that's characteristic of the dump that's fresh and not yet been caked by the careless park walkers.
 
 That is to say that it's as pleasant as it could be in mid may evening in Dyrabad.
 
-But anybody looking at Takkarram Kirrakke and Andagamma Adaragottu sitting so apart would know that they are both impervious to these pleasant surroundings.
+But anybody looking at Takkarram Kirrakke and Andagamma Adaragottu sitting so far apart would know that they are both impervious to these pleasant surroundings.
 
 It's not just the author and the reader that are keenly aware of this couple.
 There's one little blighter who has been following them even more closely than us.
