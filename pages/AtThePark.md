@@ -47,9 +47,15 @@ The reader might be wondering where this grass mound has come from.
 It's come from the barren patch in front of Takkarram.
 Lest the reader attributes the barren patch to the carelessness of the aforementioned park keepers, who are in addition to being fearsome are excellent keepers of the grass in Dassamia. If they had any inkling that this patch was freshly created in the short span of time they would descend upon the culprits with their legendary fearsomeness.
 
-The patch wasn't there when Takkarram and Andagamma arrives a few minutes earlier.
+The patch wasn't there when Takkarram and Andagamma arrived a few minutes earlier.
 It's formed because Takkarram has been picking one strand at a time from that spot and putting it on his right side.
 He has been doing this since he arrived.
+
+The rate of destruction would make the the destroyers of the Brazilian Amazon forest proud. They'd stand in queue to take lessons.
+
+The reason for this is that Andagamma has been annoyed at him.
+She has been giving him fearsome looks, one would say the park keepers if they got wind of it would come to take notes.
+
 
 
 
