@@ -106,7 +106,7 @@ There looking at him intently, he found Chikka.
 
 'Whaaat !!??... What do you mean help, what help?'. One could sense a bit of irriation in his voice. Here he was trying to woo his beloved - one would imagine, as in the present case, it looks quite untenable proposition -  and this little blot on the landscape coming in his way putting spanner in the works.
 
-'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keeper after what you've done.'
+'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keeper after what you've done.', looking the mass of grass from which he emerged.
 
 At which point, lot of questions flitted through Takkarram's mind fighting for attention, and in a separate region of his brain, even several emotions were in a stuggle of their own to bubble up on top.  
 
@@ -114,19 +114,19 @@ At last it was shame that won.
 
 Takkarram felt a bit ashamed that this tiny creature has not only grasped his predicament, but is also offering a solution, and it looked like he is quite capable of carrying it out to its logical end. And as shame made way, his heart was filled with admiration. He then said with a bit more softness in his voice than before, 'I don't want any help. Why were you listening to our conversation in the first place?'.
 
-'Sir, I came to sell the peanuts.', beckoning to his basket, 'I tried to grab your attention several times discreetly by walking in between you both, but you did not notice. I felt there was some tension in the situation. I thought I'll wait for the tension to subside a bit and  then ask you to buy peanuts.So, I settled beside you waiting for the right moment.'
+'Sir, I came to sell the peanuts.', beckoning to his basket, 'I tried to grab your attention several times discreetly by walking in between you both, but you did not notice. I felt there was some tension in the situation. I thought I'll wait for the tension to subside a bit and  then ask you to buy peanuts. So, I settled beside you waiting for the right moment.'
 
 'You didn't seem like you were waiting. You were hiding behind the mound of grass.'
 
-'Sir, it was the mound you created'.
+'Sir, it was the mound you created, there was nothing when I started waiting.'.
 
-Takkarram gave a start as if his Rajdoot kick lever rebounded. He winced a little and said, 'Okay, so want to sell the peanuts.'.
+Takkarram gave a start as if his Rajdoot kick lever rebounded. He winced a little, and may have silently bitten his teeth,  and said, 'Okay, so you want to sell the peanuts, is that right?'.
 
-Chikka nodded in the affirmative. He was glad that this transaction seemed like it's going towards conclusion.
+Chikka nodded in the affirmative. He was glad that this transaction seemed like it's going towards fruitful conclusion.
 
-He looked at the basket and was taken aback by the rovolting looking pieces that was meant to buy.
+He looked at the basket and was taken aback by the rovolting looking pieces that was expected to buy.
 
-Chikka being quite accustomed to this reaction from his would be buyers, was ready with his weapon. 
+Chikka being quite accustomed to this reaction from his wouldbe buyers, was ready with his weapon and he was keen to deploy it.
 
 He has realised at at very young age that there's a strange power in his eyes. Any maketing department of a thriving charity concern would pick him up instantly for their commericials. If commericials is the right word, or should I say an 'ad'. Commercial seems too much like, you know, money.
 Let's say an 'ad'. I'm referring to those that suddenly jump on you out of nowhere when you are cosily wathching your favourite serial or a match. Here you are in your happy little world, having pleasant time, and then you are confronted with a pair of haunting eyes, the accompanying booming voice making you feel like a cold hearted person that has no right to the comforts you are having unless you donate sizable portion of your funds to the organisation that is doing all it can to save all those that possess such haunting eyes.
