@@ -147,6 +147,9 @@ When he recovered, he said, 'Sir, everybody says that. But why would I carry goa
 
 'No, sir, I just put lots of masala on them. You'll know when you eat them.'
 
+Takkarram didn't seem convinced. But, he knew that the little devil will not move without selling those sickly goat dropping like things. Also, from the corner of his eye, he could notice a certain softning of Andagamma's eyes, as she no doubt, began finding this little exchange amusing. So, he wanted to finish this business with Chikka, and get back to wooing Andagamma.
+
+
 
 
 
