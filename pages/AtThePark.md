@@ -46,7 +46,7 @@ If Takkarram were in any normal situation, he would have seen that Chikka has be
 
 The reader might be wondering where this grass mound has come from.
 It's come from the barren patch in front of Takkarram.
-Lest the reader attributes the barren patch to the carelessness of the aforementioned park keepers, who are, in addition to being fearsome, are excellent keepers of the grass in Dassamia park. If they had any inkling that this patch was freshly created in the such short span of time they would descend upon the culprits with their legendary fearsomeness.
+Lest the reader attributes the barren patch to the carelessness of the aforementioned park keepers, who are, in addition to being fearsome, are excellent keepers of the grass in Dassamia park. If they had any inkling that this patch was freshly created in the such short span of time they would descend upon the culprits with their legendary ferocity.
 
 The patch wasn't there when Takkarram and Andagamma arrived a few minutes earlier.
 It's formed because Takkarram has been picking one strand at a time from that spot and putting it on his right side.
