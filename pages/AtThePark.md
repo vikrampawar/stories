@@ -174,6 +174,11 @@ Takkarram looked flabbergasted. He said, 'What do you want now, you little devil
 
 Chikka promptly replied, 'No, sir. I think I can take of myself very well. All I'm thinking is what will I do with this empty basket now that there is nothing in it to seel. Would you mind buying that as well, it will be easy for you to carry all the snacks that you've bought.'
 
+Takkarram was in no mood to argue. He snatched the basket from his hands, took out all the money he had in his wallet and placed it in Chikka's hands. This it appeared to the uninitiated as is Takkarram did with no emotion. But an expert in these matters could discern molten lava flowing through his veins.
+
+Chikka finally seemed satisfied.
+Grinning profusely, he said, 'Sir, you are such a nice person. Thank you for buying all this from me.', and then he turned at Andagamma. 
+
 
 
 
