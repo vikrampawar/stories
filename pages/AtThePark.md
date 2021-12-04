@@ -151,9 +151,18 @@ Takkarram didn't seem convinced. He also didn't seem like he relished the opport
 
 'OK. Give me one packet.'
 
-Chikka looked at him as if to say, I did all this for you just for one packet and then he turned gaze towards Andagamma for some support. Andagamma promptly gave Takkarram a reproachful look.
+Chikka looked at him as if to say, 'I did all this for you just for one packet ?', and then he turned gaze towards Andagamma for some support. Andagamma promptly gave Takkarram a reproachful look.
 
-Takkarram already being tortured by Andagamma's angry looks, did want one more emotion added to them.
+Takkarram already being tortured by Andagamma's angry looks, did want one more disagreeable emotion added to them.
+
+He said, 'OK give me all the peanuts you have, and tell me how much it would cost.'.
+
+As we previously noted, Chikka has an uncanny business sense. 
+He realized that he's got a trapped customer.
+He wanted to make the most of this opportunity.
+So he, instead of jumping with joy that he could sell all his peanuts in one go, continued looking towards Andagamma, who was now very much into this game and helping him in his not so noble act.
+
+
 
 
 
