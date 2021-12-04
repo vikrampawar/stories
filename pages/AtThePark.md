@@ -190,7 +190,17 @@ Takkaram had a confused look in his face, there was a bit excitement also mixed 
 
 Andagamma seemed to be in her own world. Now, she was holding her tummy and laughing. When she got a bit of control over herself, she held Takkarram's face in her two hands, her face shining with the energy expended in her laughter, which it looked like she was still smiling, looked into his eyes and said, 'You fool. Were you going adopt that little devil, just to appease me?.' 
 
-Takkaram wanted to say many things, but he did not want to spoil the moment. He had no idea how the situation turned so favorably for him, and knowing that he can't control it, just decided to go with the flow and say nothing.  He just kept looking at her wide eyes which were just a few moments earlier reminding him of the ferocious deity lost all the ferocity and filled with all positive emotions. The tears in the eyes from all the laughter before giving them a certain undescribable charm.
+Takkaram wanted to say many things, but he did not want to spoil the moment. He had no idea how the situation turned so favorably for him, and knowing that he can't control it, just decided to go with the flow and say nothing.  He just kept looking at her wide eyes which were just a few moments earlier reminding him of the ferocious deity, lost all of that ferocity, and seemed filled with all positive emotions. The tears in the eyes from all the laughter before giving them a certain undescribable charm. The faint rays of Sun that who was ready to say goodbye taking it a notch higher.
+
+Takkarram, his spine tingling with expectation said 'Andu.'
+
+'Huun'. It was the sound from Andagamma, a sound that is diametrically opposite in it's emotion to the one we encounted before.
+
+'Andu.', said Takkarram again, the tingling picking up pace.
+
+'Huun'.
+
+
 
 
 
