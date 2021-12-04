@@ -182,7 +182,13 @@ Grinning profusely, he said, 'Sir, you are such a nice person. Thank you for buy
 Saying this, pocketing his loot, the financial genius disappeared.
 
 Takkarram heaved a sigh of relief. 
-He was glad that he was finally alone with Andagamma, and Andagamma seemed less like the deity we mentioned earlier and seemed a bit mollified.  
+He was glad that he was finally alone with Andagamma, and Andagamma seemed less like the deity we mentioned earlier and probably has been a bit mollified. Here, Takkarram was partially correct.
+
+As soon as the little master disappeared, Andagamma started laughing uncontrollably. Then she stopped, and then looking at Takkarram, she started laughing again.
+
+Takkaram had a confused look in his face, there was a bit excitement also mixed in with the confusion. He was finding Andagamma's laughter delightful as he normally finds. It had that silvery quality that made it seemed heavenly to him. But, he wasn't sure if she was laughing at him.
+
+Andagamma seemed to be in her own world. Now, she was holding her tummy and laughing.
 
 
 
