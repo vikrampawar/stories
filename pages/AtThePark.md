@@ -57,6 +57,10 @@ The rate of destruction would make the destroyers of the Brazilian Amazon forest
 The reason for this is that Andagamma has been annoyed at him.
 She has been giving him fearsome looks, one would say the park keepers, if they got wind of it, would come to take notes.
 
-When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose poster Takkarram and grown up seeing everyday.
-God knows how this goddess looks in real life, but the portrayal of this Goddess by the poster makers
+When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose poster Takkarram has grown up seeing everyday.
+God knows how this goddess looks in real life, but the portrayal of this particular goddess by the poster makers is literally breathtaking.
+It would be really interesting to see the reaction of this goddess if she were to descend down to earth and see her portrayal.
+Unfortunately that may not be possible any time soon.
+
+It makes one wonder, what would be the inspiration for these poster makers? What makes their imagination so fertile. 
 
