@@ -22,6 +22,8 @@ And if Dassamia park keepers were any less fearsome, we'd have in fact seen at l
 As we said the sun has relaxed and the wind is working its magic.
 One would say the odours hitting the nostrils is divine, just if they are willing to ignore the fact that it could also be called bovine.
 A fresh dump of cow dung is also making its presence felt along with all the others smells permeating the place.
+If fact, those that are keen accumulators of the knowledge about the bovine excreta would say that it was delivered not so long ago.
+It still has the sweetness that's characteristic of the dump that's fresh.
 
 
 It's as pleasant as it could be in mid may evening in Dyrabad.
