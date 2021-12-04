@@ -74,12 +74,16 @@ In the meantime, Takkarram having settled his blood flow with the grass picking 
 
 He said 'Anda'.
 
-He heard 'Huu', which was not really what Andagamma said. It was just Andagamma's way of showing her disapproval. This was the sound produced from her letting out a jet of air through her nostrils. If we have not seen it, we'd not believe those file delicate nostrols could take this force of air , and still remain so fine and delicate.
+He heard 'Huu', which was not really what Andagamma said. It was just Andagamma's way of acknowledging and not acknowledging what she heard. This was the sound produced from her letting out a jet of air through her nostrils. If we have not seen it, we'd not believe those fine delicate nostrils could take this force of air and still remain so fine and delicate.
 
+The courage that Takkarram mustered, evaporated.
+He
 
 'Anda'.
 
-'Hu
+'Huu'.
+
+
 
 
 
