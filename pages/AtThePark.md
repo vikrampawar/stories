@@ -120,7 +120,12 @@ Takkarram felt a bit ashamed that this tiny creature has not only grasped his pr
 
 'Sir, it was the mound you created'.
 
-Takkarram gave start not unlike that the sacrificial goat 
+Takkarram gave a start as if his Rajdoot kick lever rebounded. He winced a little and said, 'Okay, so want to sell the peanuts.'.
+
+Chikka nodded in the affirmative. He was glad that this transaction seemed like it's going towards conclusion.
+
+He looked at the basket and was taken aback by the rovolting looking pieces that was meant to buy.
+
 
 
 
