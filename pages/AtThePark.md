@@ -27,3 +27,11 @@ It still retained the sweetness that's characteristic of the dump that's fresh a
 
 That is to say that it's as pleasant as it could be in mid may evening in Dyrabad.
 
+But anybody looking at Takkarram Kirrakke and Andagamma Adaragottu sitting so apart would know that they are both impervious to these pleasant surroundings.
+
+It's not just the author and the reader that are keenly aware of this couple.
+There's one little blighter who has been following them even more closely than us.
+The locals call him Chikka.
+It's hard to say how old he is.
+
+
