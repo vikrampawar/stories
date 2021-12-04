@@ -38,7 +38,7 @@ Certainly below 15.
 Is he above 10? As I said, it's hard to know.
 It's also very difficult to know where he comes from, where he lives, whether he has any family.
 
-All we know is that he has a shrewd business sense that'll make Babbani, the local billionaire business magnet, proud if he possessed that knowledge at that tender age.
+All we know is that he has a shrewd business sense that'll make Babbani, the local billionaire business magnet, proud, if he possessed that knowledge at that tender age.
 
 He is carrying a little basket that has various kinds of dry snacks, the chief among them being spicy peanuts.
 
@@ -59,7 +59,7 @@ She has been giving him fearsome looks, one would say the park keepers, if they 
 
 When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose poster Takkarram has grown up seeing everyday.
 
-God knows how this goddess looks in real life, but the portrayal of this particular goddess by the poster makers is literally breathtaking.
+God knows how this goddess looks in real life, but the portrayal of this particular deity by the poster makers is literally breathtaking.
 It would be really interesting to see the reaction of this goddess if she were to descend down to earth and see her fantastical portrayals.
 Unfortunately that may not be possible any time soon.
 
