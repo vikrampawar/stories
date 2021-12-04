@@ -177,7 +177,17 @@ Chikka promptly replied, 'No, sir. I think I can take of myself very well. All I
 Takkarram was in no mood to argue. He snatched the basket from his hands, took out all the money he had in his wallet and placed it in Chikka's hands. This it appeared to the uninitiated as is Takkarram did with no emotion. But an expert in these matters could discern molten lava flowing through his veins.
 
 Chikka finally seemed satisfied.
-Grinning profusely, he said, 'Sir, you are such a nice person. Thank you for buying all this from me.', and then he turned at Andagamma. 
+Grinning profusely, he said, 'Sir, you are such a nice person. Thank you for buying all this from me.', and then he turned at Andagamma and said. 'Madam, sir has a heart of gold, you are lucky to have him. I don't know why you are annoyed at him, but I'm sure he will do anything to please you. You've just seen it happening.'
+
+Saying this, pocketing his loot, the financial genius disappeared.
+
+Takkarram heaved a sigh of relief. 
+He was glad that he was finally alone with Andagamma, and Andagamma seemed less like the deity we mentioned earlier and seemed a bit mollified.  
+
+
+
+
+
 
 
 
