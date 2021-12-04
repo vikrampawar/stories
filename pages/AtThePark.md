@@ -200,7 +200,17 @@ Takkarram, his spine tingling with expectation said 'Andu.'
 
 'Huun'.
 
+'Andu.'
 
+'Huun', and she widening her eyes further as if to say, are you going to say anything further.
+
+Takkarram said, 'Do you want to eat the spicy peanuts?'
+
+Andagamma, instantly reacted with a disgust in her voice said 'They look like goat droppings.'
+
+Confused Takkarram said, 'Then why did you ...', before he could complete, the atmosphere was filled with the silvery laughter we are all familiar with now.
+
+The Sun as if taking its cue, dipped down enveloping the Dassamia park in semi-darkness.
 
 
 
