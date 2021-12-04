@@ -131,7 +131,7 @@ Chikka being quite accustomed to this reaction from his would-be buyers, was rea
 He has realised at at very young age that there's a strange power in his eyes. Any marketing department of a thriving charity concern would pick him up instantly for their commercials. If commercials is the right word, or should I say an ad. Commercial has a pretty uncharitable financial sense to it.
 Let's settle with ad. I'm referring to those that suddenly jump on you out of nowhere when you are cosily watching your favorite serial or a match. Here you are in your happy little world, having pleasant time, and then you are confronted with a pair of haunting eyes, the accompanying booming voice making you feel like a cold hearted person that has no right to the comforts you are having unless you donate sizable portion of your funds to the organisation that is doing all it can to save all those that possess such haunting eyes.
 
-Chikka started turning the dial on his eyes such that the very eyes that were sparkling with naughtiness at his customers inability to speak to his beloved, suddenly took a turn to look a bit haunting as if he has not had food the whole day.
+Chikka started turning the dial on his eyes such that the very eyes that were sparkling with naughtiness at his customers inability to speak to his beloved earlier, suddenly took a turn to look a bit haunting as if he has not had food the whole day.
 
 Takkaram felt compelled to react. He said, 'but, but, look at those ghastly things you call peanuts. God knows what you mixed in them. I don't like their color. They remind me of the, the..'
 
@@ -139,7 +139,7 @@ Takkaram felt compelled to react. He said, 'but, but, look at those ghastly thin
 
 'I was thinking of something else, but yes, your description suits it better', Takkarram said, with questioning look on his face as if to ask if they are actually that.
 
-Chikka exploded into a laughing fit. It's remarkable quickly his emotions change. His laugh was a series of halts and explosions of noises that could well have come out of an excited, smaller than usual pony, that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand as if to control himself.
+Chikka exploded into a laughing fit. It's remarkable how quickly his emotions change. His laugh was a series of halts and explosions of noises that could well have come out of an excited, smaller than usual pony, that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand as if to control himself.
 
 When he recovered, he said, 'Sir, everybody says that. But why would I carry goat droppings?'
 
@@ -147,13 +147,13 @@ When he recovered, he said, 'Sir, everybody says that. But why would I carry goa
 
 'No, sir, I just put lots of black masala on them. You'll know when you eat them.'
 
-Takkarram didn't seem convinced. He also didn't seem like he relished the opportunity. But, he knew that the little devil will not move without selling those sickly goat dropping like things. Also, from the corner of his eye, he could notice a certain softening of Andagamma's eyes, as she no doubt, began finding this little exchange amusing. So, he wanted to finish this business with Chikka, and get back to wooing Andagamma.
+Takkarram didn't seem convinced. He also didn't seem like he would relish the opportunity. But, he knew that the little devil will not move without selling those sickly goat dropping like things. Also, from the corner of his eye, he could notice a certain softening of Andagamma's eyes, as she no doubt, began finding this little exchange amusing. So, he wanted to finish this business with Chikka, and get back to wooing Andagamma.
 
 'OK. Give me one packet.'
 
 Chikka looked at him as if to say, 'I did all this for you just for one packet ?', and then he turned gaze towards Andagamma for some support. Andagamma promptly gave Takkarram a reproachful look.
 
-Takkarram already being tortured by Andagamma's angry looks, did want one more disagreeable emotion added to them.
+Takkarram already being tortured by Andagamma's angry looks, did not want one more disagreeable emotion added to them.
 
 He said, 'OK give me all the peanuts you have, and tell me how much it would cost.'.
 
@@ -210,7 +210,7 @@ Andagamma, instantly reacted with a disgust in her voice said 'They look like go
 
 Confused Takkarram said, 'Then why did you ...', before he could complete, the atmosphere was filled with the silvery laughter we are all familiar with now.
 
-The Sun as if taking its cue, dipped down enveloping the Dassamia park in semi-darkness.
+The Sun as if taking its cue, dipped down, enveloping the Dassamia park in semi-darkness.
 
 
 
