@@ -188,7 +188,8 @@ As soon as the little master disappeared, Andagamma started laughing uncontrolla
 
 Takkaram had a confused look in his face, there was a bit excitement also mixed in with the confusion. He was finding Andagamma's laughter delightful as he normally finds. It had that silvery quality that made it seemed heavenly to him. But, he wasn't sure if she was laughing at him.
 
-Andagamma seemed to be in her own world. Now, she was holding her tummy and laughing.
+Andagamma seemed to be in her own world. Now, she was holding her tummy and laughing. When she got a bit of control over herself, she held Takkarram's face in her two hands, her face shining with the energy expended in her laughter, which it looked like she was still smiling, looked into his eyes and said, 'You fool. Were you going adopt that little devil, just to appease me?.' 
+
 
 
 
