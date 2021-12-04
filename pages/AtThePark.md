@@ -126,6 +126,20 @@ Chikka nodded in the affirmative. He was glad that this transaction seemed like 
 
 He looked at the basket and was taken aback by the rovolting looking pieces that was meant to buy.
 
+Chikka being quite accustomed to this reaction from his would be buyers, was ready with his weapon. 
+
+He has realised at at very young age that there's a strange power in his eyes. Any maketing department of a thriving charity concern would pick him up instantly for their commericials. If commericials is the right word, or should I say an 'ad'. Commercial seems too much like, you know, money.
+Let's say an 'ad'. I'm referring to those that suddenly jump on you out of nowhere when you are cosily wathching your favourite serial or a match. Here you are in your happy little world, having pleasant time, and then you are confronted with a pair of haunting eyes, the accompanying booming voice making you feel like a cold hearted person that has no right to the comforts you are having unless you donate sizable portion of your funds to the organisation that is doing all it can to save all those that possess such haunting eyes.
+
+Chikka started turning the dial on his eyes such that the very eyes that were sparking with naughiness at his customers inability to speak to his beloved, suddenly took a turn to look a bit haunting as if he has not had food the whole day.
+
+Takkaram felt compelled to react. He said, 'but, but, look at those ghastly things you call peanuts. God knows what you mixed in them. I don't like their color. They remind me of the, the..'
+
+'Sir, I are saying the goat droppings?'
+
+'I was thinking of something else, but yes, your description suits it better', Takkarram said, with questioning look on his face as if to ask if they are actually that.
+
+
 
 
 
