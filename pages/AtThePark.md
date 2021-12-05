@@ -57,7 +57,7 @@ The rate of destruction would make the destroyers of the Brazilian Amazon forest
 The reason for this grass-picking is that Andagamma has been annoyed at him.
 She has been giving him fearsome looks, one would say the park keepers, if they got wind of it, would come to take notes in the hope of improving their already considerable expertise in this area.
 
-When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose [poster](../assets/Kali_by_Raja_Ravi_Varma.jpg) Takkarram has grown up seeing everyday.
+When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose [poster](../assets/Kali_by_Raja_Ravi_Varma.jpg) Takkarram has grown up seeing everyday. It it one of the most frightful things a little can see. It depicts a fearsome looking female warrior with large read eyes, open mouth with the tongue hanging out, a large necklace with made of severed heads and hands, bearing not two, as that would not do justice, four hands. One hand carrying a severed head, presumably to add it to the collection, the other carrying a plate to collect the blood flowing from the severed head. The third one has a bloodied sword, and the fourth one luckily is free, one wonders why the creator has not gone fully monty, and handed it another object from the same class others? You get the picture?.
 
 God knows how this goddess looks in real life, but the portrayal of this particular deity by the poster makers is literally breathtaking.
 It would be really interesting to see the reaction of this goddess if she were to descend down to earth and see her fantastical portrayals.
