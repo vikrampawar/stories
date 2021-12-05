@@ -1,24 +1,26 @@
 # Stories that I've written
 
-Those that are marked [X] are in a state that can be read.
-
 ## Sort of ok for human consumption
 
-- [The Apple Mac Store Episode](pages/TheAppleMacStoreEpisode.md) [Dec 2021] [X]
-- [Introducing Takkarram Kirrakke](pages/IntroducingTakkarramKirrakke.md) [Dec 2021] [X]  
-- [At the park](pages/AtThePark.md) [Dec 2021] [X]
+- [The Apple Mac Store Episode](pages/TheAppleMacStoreEpisode.md) [Dec 2021] 
+- [Introducing Takkarram Kirrakke](pages/IntroducingTakkarramKirrakke.md) [Dec 2021] 
+- [At the park](pages/AtThePark.md) [Dec 2021] 
 
 ## Still cooking
 
 - 
 
 ## Telugu
-- [ Premanti Enti Parody](pages/PremanteEntiParody.md) [X]
+- [ Premanti Enti Parody](pages/PremanteEntiParody.md) [Dec 2021]
 
 
 ## Not really stories
 - [Why Github](pages/WhyGithub.md)
 - [About He/Him, She/Her](pages/AboutHeHimAndSheHer.md) 
+
+## Miscellaneous 
+- [Experimental](pages/Expermental.md)
+
 
 ## Attributions
 
