@@ -31,7 +31,7 @@ It starts at the beginning of the night as one sees him, and then continues to r
 Quite how he is able to manage to do this is a puzzle that S. is incapable of cracking. 
 And as one is led to imagine, he did start that characteristic laugh as the goggle-eyed party entered.
 
-Perspicuous readers might note Revati who was c. by a. in the previous episode. 
+Perspicuous readers might note Revati who was conspicuous by a. in the previous episode. 
 All S. could see then was that Revati was preoccupied with multi-coloured mehandi, which she took upon herself to smear on every unsuspecting kid that night, even the boisterous ones, and was also secretly eyeing for amenable adults. 
 Seeing her in that voracious mood S. maintained a safe distance, lest he be smeared with the mehandi, which S. recognises is a pretty good thing to smear oneself with, as long as the oneself is not S. 
 Last night's proceedings confirmed S.'s suspicion, and his decision to maintain distance during previous party was proved to be prudent.
