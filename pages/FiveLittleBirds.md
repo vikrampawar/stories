@@ -1,4 +1,6 @@
 
+>[Home](../README.md)
+
 # Five little birds, one daring feat [Original 2014]
 
 A bird is perched on top of a vertigo-inducing thin steep 400 feet high column of rock in the middle of a valley filled with such rocks. It's just hatched five little birds. Its partner restless, glides down from the top. In a few minutes the mother bird also glides down and reaches the ground beneath. It looks up towards its babies and cries out loud as if it's beckoning them to come down.
@@ -12,3 +14,5 @@ While one is stilling cringing, one more bird starts its slow steps and does the
 As if this was not enough, the fifth bird also jumps. This one's jump is a lot more cleaner, and it comes a long distance down without hitting any rock and raising the hopes of the observer, but it hits a rock as well, does the now familiar tumble among the rocks and reaches ground motionless.
 
 What's happening? Why are these cute little birds, barely a day old, doing these fatal jumps from these incredible heights ? Why are its parents looking helplessly or have even provoked these little birds to do these incredible jumps? What's the purpose?
+
+>[Home](../README.md)

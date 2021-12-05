@@ -1,3 +1,5 @@
+>[Home](../README.md)
+
 # House Warming Party [Original 2014]
 
 There comes a moment in every summariser’s life when the summariser has to face those about whom he has recently summarised with gay abandon. 
@@ -51,3 +53,5 @@ With that, S.’s energy levels reach to such low levels, that S. has to retire 
 A lot has occurred last night that deserves to be in the summary, but may have to wait for another bout of inspiration. 
 S. is also keenly aware that the reader, although sagacious and vigilant as mentioned previously, can also be a little impatient. 
 For S., reader's comfort is paramount. So S. has to say tata for now.
+
+>[Home](../README.md)
