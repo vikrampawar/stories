@@ -18,3 +18,7 @@ Those that are marked [X] are in a state that can be read.
 - [Why Github](pages/WhyGithub.md)
 - [About He/Him, She/Her](pages/AboutHeHimAndSheHer.md) 
   
+
+## Attribution
+
+Author is inspired by [P.G Wodehouse](https://en.wikipedia.org/wiki/P._G._Wodehouse) and [Mallik Cartoonist](https://en-gb.facebook.com/MallikCartoonist/).
