@@ -14,18 +14,18 @@ All of the couples seem to be be intent on this idea.
 
 The keener of the eye would see that there is one couple sitting in the park that seems to be violating this rule.
 They've sat so far apart that it is a borderline case to say that they've sat together.
-If fact, if one of them turned their faces away, you may think that they are not together.
+If fact, if one of them turned their faces away, you may think that they are not together at all.
 
 A local that's conversant with the skills of the auto rickshaw drivers in that place would think it a matter of course for one to swerve the auto through the gap.
-And if Dassamia park keepers were any less fearsome, we'd have in fact seen at least some of them going between them by now.
+And if Dassamia park keepers were any less fearsome or vigilant, we'd have in fact seen at least some of them going between them by now.
 
-As we said the sun has relaxed and the wind is working its magic.
-One would say the odours hitting the nostrils are divine, provided they are willing to discount one of them which has bovine origins, as a fresh dump of cow dung is also making its presence felt along with all the others smells permeating the place.
+As we said the sun has relaxed, and the wind began working its magic.
+One would say the odours hitting the nostrils are divine, provided they are willing to discount that one of them has bovine origins, as a fresh dump of cow dung is also making its presence felt along with all the others smells permeating the place.
 
 If fact, those that are keen accumulators of the knowledge about the bovine excreta would say that it was delivered not so long ago.
 It still retained the sweetness that's characteristic of the dump that's fresh and not yet been caked by the careless park walkers.
 
-That is to say that it's as pleasant as it could be in mid may evening in Dyrabad.
+That is to say that it's as pleasant as it could be in mid May evening in Dyrabad.
 
 But anybody looking at Takkarram Kirrakke and Andagamma Adaragottu sitting so far apart would know that they are both impervious to these pleasant surroundings.
 
