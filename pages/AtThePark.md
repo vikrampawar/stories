@@ -35,7 +35,7 @@ There's one little blighter who has been following them even more closely than u
 The locals call him Chikka.
 It's hard to say how old he is.
 Certainly below 15.
-Is he above 10? As we said, it's hard to know.
+Is he above 10? It's hard to know.
 It's also very difficult to know where he comes from, where he lives, whether he has any family.
 
 All we know is that he has a shrewd business sense that'll make Babbani, the local billionaire business magnet, proud, if he possessed that knowledge at that tender age.
@@ -57,7 +57,7 @@ The rate of destruction would make the destroyers of the Brazilian Amazon forest
 The reason for this grass-picking is that Andagamma has been annoyed at him.
 She has been giving him fearsome looks, one would say the park keepers, if they got wind of it, would come to take notes in the hope of improving their already considerable expertise in this area.
 
-When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose poster Takkarram has grown up seeing everyday.
+When Andagamma is in this mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose [poster](../assets/Kali_by_Raja_Ravi_Varma.jpg) Takkarram has grown up seeing everyday.
 
 God knows how this goddess looks in real life, but the portrayal of this particular deity by the poster makers is literally breathtaking.
 It would be really interesting to see the reaction of this goddess if she were to descend down to earth and see her fantastical portrayals.
