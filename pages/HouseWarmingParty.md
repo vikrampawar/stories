@@ -25,9 +25,16 @@ This enthralling view suddenly transported S. and family and Chameli and Anand i
 Soon the usual effervesce returned. 
 The night began its mirthful journey.
 
-V, the host, who was found, to the disconcertion of the S.’s sagacious readers, quite subdued, in the previous episode, returned to his characteristic bright and breezy self. V in this mood, is known to laugh a laugh that transcends the pitiful laughs of mere mortals. It starts at the beginning of the night as one sees him, and then continues to ring throughout the night, may be going up a notch, once in a while, for a particularly funny joke, but on the whole maintains a considerable and continuous intensity, which may be ends only after one says bye to him for the night. Quite how he is able to manage to do this is a puzzle that S. is incapable of cracking. And as one is led to imagine, he did start that characteristic laugh as the goggle-eyed party entered.
+Vishal, the host, who was found, to the disconcertion of the S.'s sagacious readers, quite subdued, in the previous episode, returned to his characteristic bright and breezy self. 
+Vishal in this mood, is known to laugh a laugh that transcends the pitiful laughs of mere mortals. 
+It starts at the beginning of the night as one sees him, and then continues to ring throughout the night, may be going up a notch, once in a while, for a particularly funny joke, but on the whole maintains a considerable and continuous intensity, which may be ends only after one says bye to him for the night. 
+Quite how he is able to manage to do this is a puzzle that S. is incapable of cracking. 
+And as one is led to imagine, he did start that characteristic laugh as the goggle-eyed party entered.
 
-Perspicuous readers might note R who was c. by a. in the previous episode. All S. could see then was that R was preoccupied with multicoloured mehandi, which she took upon herself to smear on every unsuspecting kid that night, even the boisterous ones, and was also secretly eyeing for amenable adults. Seeing her in that voracious mood S. maintained a safe distance, lest he be smeared with the mehandi, which S. recognises is a pretty good thing to smear oneself with, as long as the oneself is not S. Last nights proceedings confirmed S.’s suspicion, and his decision to maintain distance during previous party was proved to be prudent.
+Perspicuous readers might note Revati who was c. by a. in the previous episode. 
+All S. could see then was that Revati was preoccupied with multi-coloured mehandi, which she took upon herself to smear on every unsuspecting kid that night, even the boisterous ones, and was also secretly eyeing for amenable adults. 
+Seeing her in that voracious mood S. maintained a safe distance, lest he be smeared with the mehandi, which S. recognises is a pretty good thing to smear oneself with, as long as the oneself is not S. 
+Last night's proceedings confirmed S.'s suspicion, and his decision to maintain distance during previous party was proved to be prudent.
 
 This might leave the ever vigilant reader wondering quite what the proceedings were. S. is only too obliging to divulge. However, S. knows that after that happy divulging of interesting info, he will have to face R again. This puts S. in a somewhat precarious position. So, S. will have to tone down his enthusiasm and reveal only as much as is strictly required, and leave the vigilant reader to fill the gaps with his/her fertile imagination.
 
