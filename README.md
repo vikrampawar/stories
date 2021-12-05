@@ -19,7 +19,7 @@ Those that are marked [X] are in a state that can be read.
 - [About He/Him, She/Her](pages/AboutHeHimAndSheHer.md) 
   
 
-## Attribution
+## Attributions
 
 Author is inspired by [P.G Wodehouse](https://en.wikipedia.org/wiki/P._G._Wodehouse) and [Mallik Cartoonist](https://en-gb.facebook.com/MallikCartoonist/).
 
