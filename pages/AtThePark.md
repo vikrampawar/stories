@@ -120,7 +120,7 @@ Takkarram felt a bit ashamed that this tiny creature has not only grasped his pr
 
 'Sir, it was the mound you created, there was nothing when I started waiting.'.
 
-Takkarram gave a start as if his Rajdoot kick lever rebounded. He winced a little, and may have silently bitten his teeth,  and said, 'Okay, so you want to sell the peanuts, is that right?'.
+Takkarram gave a start as if his [Rajdoot](../assets/Rajdoot.jpeg) kick lever rebounded. He winced a little, and may have silently bitten his teeth,  and said, 'Okay, so you want to sell the peanuts, is that right?'.
 
 Chikka nodded in the affirmative. He was glad that this transaction seemed like it's going towards fruitful conclusion.
 
