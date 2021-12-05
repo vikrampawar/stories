@@ -63,7 +63,7 @@ God knows how this goddess looks in real life, if indeed it's possible for them 
 It would be really interesting to see the reaction of this goddess if she were to descend down to earth and see her fantastical portrayals.
 Unfortunately that may not be possible any time soon.
 
-It makes one wonder, what would be the inspiration for these poster makers? What makes their imagination so fertile.
+It makes one wonder, what would be the inspiration for these poster makers? What makes their imagination so fertile?
 
 One, who is not partial to these poster makers could imagine that these children of this exotic artform must be male.
 This must be their way of letting out something that's happening in their lives without actually saying it directly.
@@ -106,7 +106,7 @@ There looking at him intently, he found Chikka.
 
 'Whaaat !!??... What do you mean help, what help?'. One could sense a bit of irriation in his voice. Here he was trying to woo his beloved - one would imagine, as in the present case, it looks quite untenable proposition -  and this little blot on the landscape coming in his way putting spanner in the works.
 
-'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keeper after what you've done.', looking the mass of grass from which he emerged.
+'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keeper after what you've done.', looking at the mass of grass from which he emerged.
 
 At which point, lot of questions flitted through Takkarram's mind fighting for attention, and in a separate region of his brain, even several emotions were in a stuggle of their own to bubble up on top.  
 
