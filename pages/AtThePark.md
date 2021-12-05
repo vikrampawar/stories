@@ -190,7 +190,7 @@ Takkaram had a confused look in his face, there was a bit of excitement also mix
 
 Andagamma seemed to be in her own world. Now, she was holding her tummy and laughing. When she got a bit of control over herself, she held Takkarram's face in her two hands, her face shining with the energy expended in her laughter, which it looked like she was still smiling, looked into his eyes and said, 'You fool. Were you going adopt that little devil, just to appease me?.' 
 
-Takkaram wanted to say many things, but he did not want to spoil the moment. He had no idea how the situation turned so favorably for him, and knowing that he can't control it, just decided to go with the flow and say nothing.  He just kept looking at her wide eyes which were just a few moments earlier reminding him of the ferocious deity, lost all of that ferocity, and seemed filled with all positive emotions. The tears in the eyes from all the laughter before giving them a certain undescribable charm. The faint rays of Sun who was ready to say goodbye taking it a notch higher.
+Takkaram wanted to say many things, but he did not want to spoil the moment. He had no idea how the situation turned so favorably for him, and knowing that he can't control it, just decided to go with the flow and say nothing.  He just kept looking at her wide eyes which were just a few moments earlier reminding him of the ferocious deity, lost all of that ferocity, and seemed filled with all positive emotions. The tears in the eyes from all the laughter before giving them a certain undescribable charm. The faint rays of sun who was ready to say goodbye taking it a notch higher.
 
 Takkarram, his spine tingling with expectation said 'Andu.'
 
@@ -210,7 +210,7 @@ Andagamma, instantly reacted with a disgust in her voice said 'Cheeeeee!! They l
 
 Confused Takkarram said, 'Then why did you ...', before he could complete, the atmosphere was filled with the silvery laughter we are all familiar with now.
 
-The Sun as if taking its cue, dipped down, enveloping the Dassamia park in semi-darkness.
+The sun as if taking its cue, dipped down, enveloping the Dassamia park in semi-darkness.
 
 
 
