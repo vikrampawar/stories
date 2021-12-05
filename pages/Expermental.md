@@ -10,4 +10,4 @@
 
 
 ## Telugu
-- [ Premante Enti Parody](pages/PremanteEntiParody.md) [Dec 2021]
+- [ Premante Enti Parody](PremanteEntiParody.md) [Dec 2021]
