@@ -1,4 +1,4 @@
-# Premante Enti Parody Dec 2021 
+# Premante Enti Parody Dec 2021  [ Language - Telugu]
 
 ## Parody
 
