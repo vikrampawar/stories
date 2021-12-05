@@ -1,5 +1,7 @@
 # Stories that I've written
 
+This repository contains my writings.
+
 ## Sort of ok for human consumption
 
 - [The Apple Mac Store Episode](pages/TheAppleMacStoreEpisode.md) [Dec 2021] 
