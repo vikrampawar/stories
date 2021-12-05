@@ -11,7 +11,7 @@ Mounika's brief Whatsapp message led S. to believe that it was a straightforward
 It would have been so, if one walked from point A to point B in a line that’s as close to a straight line as possible.
 
 However, the line that S. tread with his wife and two children as the rain drops were falling on their heads, was, if anything, resembling more the contours of a jalebi made by an overenthusiastic chef, than a straight line. 
-This line went around Waitrose 3 times, and then went along every building in the vicinity, making big dots near the entrances of each, as S. and family tried to decipher the buildings’ name from the ultra small board that was hung near the entrances. 
+This line went around Waitrose 3 times, and then went along every building in the vicinity, making big dots near the entrances of each, as S. and family tried to decipher the buildings'name from the ultra small board that was hung near the entrances. 
 
 After having done this for a while, and when his phone was in danger of getting drenched, the exasperated S. gave up and rang Mounika for more specific details, upon which Mounika playfully suggested concentrating on only the buildings surrounding a play area with a large slide. 
 [The sympathetic reader may at this point say, why this crucial detail was not included in the earlier brief Whatsapp message - to which the S. has to nod in silent, but vigorous agreement.]
@@ -36,8 +36,18 @@ All S. could see then was that Revati was preoccupied with multi-coloured mehand
 Seeing her in that voracious mood S. maintained a safe distance, lest he be smeared with the mehandi, which S. recognises is a pretty good thing to smear oneself with, as long as the oneself is not S. 
 Last night's proceedings confirmed S.'s suspicion, and his decision to maintain distance during previous party was proved to be prudent.
 
-This might leave the ever vigilant reader wondering quite what the proceedings were. S. is only too obliging to divulge. However, S. knows that after that happy divulging of interesting info, he will have to face R again. This puts S. in a somewhat precarious position. So, S. will have to tone down his enthusiasm and reveal only as much as is strictly required, and leave the vigilant reader to fill the gaps with his/her fertile imagination.
+This might leave the ever vigilant reader wondering quite what the proceedings were. 
+S. is only too obliging to divulge. 
+However, S. knows that after that happy divulging of interesting info, he will have to face Revati again. 
+This puts S. in a somewhat precarious position. 
+So, S. will have to tone down his enthusiasm and reveal only as much as is strictly required, and leave the vigilant reader to fill the gaps with his/her fertile imagination.
 
-C although back to her peppy self, was nevertheless maintaining a sense of reserve with a firm determination to appear in her best self in the latest summary. No sounds could be heard. However, S. has a keen hawk-eye, he couldn’t fail but to observe that C sat as close to the serving table as it was possible without ordinary folks noticing what’s happening. But S. could see that copious amounts of finger food on the table was disappearing with dispatch, and made a smug note to self.
+Chameli although back to her peppy self, was nevertheless maintaining a sense of reserve with a firm determination to appear in her best self in the latest summary. 
+No sounds could be heard. 
+However, S. has a keen hawk-eye, he couldn’t fail but to observe that Chameli sat as close to the serving table as it was possible without ordinary folks noticing what’s happening. 
+But S. could see that copious amounts of finger food on the table was disappearing with dispatch, and made a smug note to self.
 
-With that, S.’s energy levels reach to such low levels, that S. has to retire presently and put an end to the current summary. A lot has occurred last night that deserves to be in the summary, but may have to wait for another bout of inspiration. S. is also keenly aware that the reader, although sagacious and vigilant as mentioned previously, can also be a little impatient. For S., r.’s comfort is paramount. So S. has to say tata for now.
+With that, S.’s energy levels reach to such low levels, that S. has to retire presently and put an end to the current summary. 
+A lot has occurred last night that deserves to be in the summary, but may have to wait for another bout of inspiration. 
+S. is also keenly aware that the reader, although sagacious and vigilant as mentioned previously, can also be a little impatient. 
+For S., reader's comfort is paramount. So S. has to say tata for now.
