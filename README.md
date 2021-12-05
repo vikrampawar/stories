@@ -8,11 +8,11 @@ This repository contains my writings.
 - [Introducing Takkarram Kirrakke](pages/IntroducingTakkarramKirrakke.md) [Dec 2021] 
 - [At the park](pages/AtThePark.md) [Dec 2021] 
 
-## Not really stories
-- [Why Github](pages/WhyGithub.md)
-- [About He/Him, She/Her](pages/AboutHeHimAndSheHer.md) 
 
 ## Miscellaneous 
+
+- [Why Github](pages/WhyGithub.md)
+- [About He/Him, She/Her](pages/AboutHeHimAndSheHer.md) 
 - [Experimental](pages/Expermental.md)
 
 
