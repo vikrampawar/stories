@@ -22,3 +22,5 @@ Those that are marked [X] are in a state that can be read.
 ## Attribution
 
 Author is inspired by [P.G Wodehouse](https://en.wikipedia.org/wiki/P._G._Wodehouse) and [Mallik Cartoonist](https://en-gb.facebook.com/MallikCartoonist/).
+
+All pictures are from [Wikimedia Commons](https://commons.wikimedia.org/wiki/Main_Page).
