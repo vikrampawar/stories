@@ -6,7 +6,7 @@ Having fried the city the whole day, it's now stretching its legs in preparation
 
 At this time of the day, usually Dassamia park is full of people.
 
-When I say people, it's mostly couples strewn all around the park.
+When we say people, it's mostly couples strewn all around the park.
 One would be amazed to see how innovative the positions are that these couples find to sit in the park.
 Hands and legs intertwined, making it hard to see where one ends and the other begins.
 The one objective seems to be that no air should pass between the couple.
@@ -35,7 +35,7 @@ There's one little blighter who has been following them even more closely than u
 The locals call him Chikka.
 It's hard to say how old he is.
 Certainly below 15.
-Is he above 10? As I said, it's hard to know.
+Is he above 10? As we said, it's hard to know.
 It's also very difficult to know where he comes from, where he lives, whether he has any family.
 
 All we know is that he has a shrewd business sense that'll make Babbani, the local billionaire business magnet, proud, if he possessed that knowledge at that tender age.
@@ -68,7 +68,7 @@ It makes one wonder, what would be the inspiration for these poster makers? What
 One, who is not partial to these poster makers could imagine that these children of this exotic artform must be male.
 This must be their way of letting out something that's happening in their lives without actually saying it directly.
 
-However, I think we are digressing.
+However, we are digressing.
 
 In the meantime, Takkarram having settled his blood flow with the grass picking exercise, picked up courage to utter a word.
 
