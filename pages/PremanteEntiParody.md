@@ -8,7 +8,7 @@ Chestene nenu vanta... elaguntadi enti
 
 Pentala taste vuntadi... Tintene  dokostadi 
 
-Toraga araganantadi... Kaudetipputundi
+Toraga araganantadi... Kadupe-tipputundi
 
 
 ## Original - Pellante enti (Pelli Sandadi 2021)
