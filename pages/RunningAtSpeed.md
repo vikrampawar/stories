@@ -14,4 +14,25 @@ So, I felt the urge to challenge myself to write as much as I can in [25 minutes
 
 Speed indeed has it's advantages, if it's used with discretion.
 
+That was yesterday. 
+
+Naturally, I was curious myself to see what's going to happen today. Last night, BBC weather man after speaking for 10 minutes without a pause, and confusing the hell out of me, as usual, about the weather in the coming week, nevertheless, managed to convey that it is going to rain heavily in the morning today. That left me a bit apprehensive. 
+
+In the previous 64 straight runs, it did rain a few times. However, it never rained so heavily to abandon running.
+
+Today morning, I woke up and was pleasantly surprised to see that it wasn't raining heavily. So, got into my running gear, and started my run.  
+
+In my first #150DayChallenge, I had lifted weights, and am used to the feeling of muscles strengthening almost after every workout. But in running,  I never felt such sudden increases in strength or in facility of running. It has been so slow as to be imperceptible -  until now. 
+
+Today,  when I started my run, I felt my legs moving effortlessly, and there was a natural urge to run faster. I was looking forward to get to the stretch of road mentioned yesterday. When I reached it, again I ran as fast as I could, and for a couple of moments, I didn't feel my effort to run faster, the legs were moving quickly on their own, and the head felt remarkably light and clear - clearer than ever. However, it was fleeting, and I came back to feeling the effort again and slowed down to my usual rhythm. 
+
+As I was jogging back home, while mulling over those fleeting moments, I was reminded of coal stoves in my Grandma's country house in Siddipet. I remembered how we'd blow air onto the coal blocks with a pipe to clear the ash away and reveal the red hot burning coal. If we blew hard, it would catch fire, and if we left it for a while, it would turn dull with ash . We had to blow just enough, and for just the right duration, to keep the coal red hot. It was fun doing that.
+
+Then I was reminded of manual blowers made of rubber bags with two wooden handles which have to be pressed together to compress the bag and blow the air out, and spread apart to decompress the bag and suck the air in.
+
+And then the parallels between the two suddenly occurred to me. 
+
+Maybe our legs are a way - arguably, the best - to compress and decompress our lungs, so that air can be blown into and out of our heads to clear the ash deposited on the red hot coal that is our mind? 
+
+
 >[Home](../README.md)
