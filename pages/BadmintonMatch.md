@@ -27,9 +27,9 @@ GS was in his usual devastating form. We should all probably vote for and force 
 
 I was going to but in the end decided not to mention anything about Telugu vs Kannada match.
 
-Kalaripayattu's eyes lighted up when he saw a high flying net shot, he jumped up in the air, his body curled up into a ball, then he uncurled his body, expanded his shoulders and smashed wildly in the air, the time stood still for a second, and then it happened - his racquet missed the cock and his team the point.
+Kalaripayattu was sorely missed.
 
-Non-playing team members were missed.
+Non-playing team members were missed even more.
 
 
 >[Home](../README.md)
