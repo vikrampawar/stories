@@ -34,12 +34,20 @@ May be that's ok.
 But, I had no respite from the misgivings about the Chemistry paper. 
 It was a nightmare.
 
-My strategy during preparation, of leaving Inorganic Chemistry completely, Organic Chemistry partially, and concentrating only on the Physical Chemistry problems backfired. I didn't understand a single Physical Chemistry problem in the Chemistry question paper.
+My strategy during preparation, of leaving Inorganic Chemistry completely, Organic Chemistry partially, and concentrating only on the Physical Chemistry problems backfired. 
+I didn't understand a single Physical Chemistry problem in the Chemistry question paper.
 
-Sitting in the large and airy exam hall, picking my thick hair, I was wondering, if I ever studied this subject. Not a single question made any sense.
+Sitting in the large and airy exam hall, picking my thick hair, I was wondering, if I ever studied this subject. 
+Not a single question made any sense.
 
-Half hour passed, I was scratching my head, and then an hour passed, I scratched some more. Then another hour passed, my scratching went to untenable intensity. Still, not a single problem was solved.
+Half hour passed, I was scratching my head, and then an hour passed, I scratched some more. 
+Then another hour passed, my scratching went to untenable intensity. 
+Still, not a single problem was solved.
 
-One, I just need one, oh God, just one glimpse of the solution to one problem, the ocean in my head would then settle, and my mind would start working again. And when all hope was lost, and only 30 more minutes were left, and I was totally drenched in my sweat, one sliver of a solution to a part of a physical chemistry problem appeared in the head, and that relieved my pressure and my mind started working again. But, I had only 29 more minutes left. I went at a furious pace at that problem, and then the next, and so on for every single minute of those 29 minutes, writing constantly with my head down, until the last minute as the examiner angrily snatched the paper from my unwilling hands, and tearing a bit of it in the process. May be, he was the same man who gave me the strange looks in the morning as I entered 15 minutes late to the first test.
+One, I just need one, oh God, just one glimpse of the solution to one problem, the ocean in my head would then settle, and my mind would start working again.
+
+And when all hope was lost, and only 30 more minutes were left, and I was totally drenched in my sweat, one sliver of a solution to a part of a physical chemistry problem appeared in the head, and that relieved my pressure and my mind started working again. 
+
+But, I had only 29 more minutes left. I went at a furious pace at that problem, and then the next, and so on for every single minute of those 29 minutes, writing constantly with my head down, until the last minute as the examiner angrily snatched the paper from my unwilling hands, and tearing a bit of it in the process. May be, he was the same man who gave me the strange looks in the morning as I entered 15 minutes late to the first test.
 
 >[Home](../README.md)
