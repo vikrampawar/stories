@@ -61,7 +61,7 @@ Gs hits the net
 21 -15. gs ss vs sy vp
 ```
 
-Inspired underdogs sy and vp almost gave a scare, but gs and ss sailled through in the end.
+Inspired underdogs sy and vp almost gave a scare, but gs and ss sailed through in the end.
 
 ```mardown
 21 12 Gs ss vs pd pm
@@ -87,6 +87,12 @@ For any omissions and corrections, YOU guys are entirely responsible :).
 ```
 Highlights :
 
-Kalaripayattu's eyes lighted up when he saw a high flying net shot, he jumped up in the air, his body curled up into a ball, then he uncurled his body, expanded his shoulders and smashed wildly in the air, the time stood still for a second, and then it happened - his racquet missed the cock and his team the point.
+Kalaripayattu's eyes lit up when he saw a high flying net shot, he jumped up in the air, his body curled up into a ball, then he uncurled his body, expanded his shoulders, and smashed wildly in the air, the time stood still for a second, and then it happened - his racquet missed the cock and his team the point.
+
+## 10 Oct
+
+Only pd, ys and vp were present. We must have played like 15 games. YS was in unstoppable form yesterday (edo avahinchinattu), he won every game he played. Pd and vp had no option but to just admire his game and give up all the points.
+
+To save us from such trouble, we should all make an effort to attend :).
 
 >[Home](../README.md)
