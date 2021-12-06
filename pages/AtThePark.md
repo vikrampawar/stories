@@ -59,6 +59,8 @@ She has been giving him fearsome looks, one would say the park keepers, if they 
 
 When Andagamma is in this formidable mood and giving him looks, she reminds Takkarram of the extraordinarily fearsome goddess whose [poster](../assets/Kali_by_Raja_Ravi_Varma.jpeg) Takkarram has grown up seeing everyday. It is one of the most frightful things a little boy can chance upon to see and it leaves an indelible mark on the memory. It depicts an intimidating female warrior with large red eyes, open mouth with the tongue hanging out, a large necklace made of severed heads and hands, bearing not two, as that would not do justice, four hands. One hand carrying a severed head, presumably to add it to the collection, the other carrying a plate to collect the blood flowing from the severed head, can't see why though. The third one has a bloodied sword, and the fourth one luckily is free, one wonders why the creator has not gone full monty, and handed it another object from the same class as others.
 
+![](../assets/Kali_by_Raja_Ravi_Varma.jpeg)
+
 God knows how this goddess looks in real life, if indeed it's possible for them to be present in real life, but the portrayal of this particular deity by the poster makers is literally breathtaking.
 It would be really interesting to see the reaction of this goddess if she were to descend down to earth and see her fantastical portrayals.
 Unfortunately that may not be possible any time soon.

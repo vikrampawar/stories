@@ -14,7 +14,7 @@
 - [Rajendra Prasad and one outrageous and endearing movie](RajendraPrasadAndOneOutrageousButEndearingMovie.md) [2014]
 - [Sahadeva's mysterious role in Mahabharata](SahadevasMysteriousRoleInMahabharata.md) [2014]
 - [Ocean of milk and creativity](OceanOfMilkAndCreativity.md) [2014]
-- [Runs milestones in Cricket](RunsMilestonesInCricket.md) [2014]
+- [Run milestones in Cricket](RunMilestonesInCricket.md) [2014]
 
 ## Telugu
 - [ Premante Enti Parody](PremanteEntiParody.md) [Dec 2021]
