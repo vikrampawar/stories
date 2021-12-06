@@ -12,6 +12,8 @@ I enjoy figuring out if the stories have any ideas of practical significance.
 
 The churning of Ocean of milk (Kshirasagara madhanam) is one such alluring mythological story with a down to earth idea.
 
+![](../assets/Sagar_Manthan.jpg)
+
 For those who don't know, in this story Devas (Gods) and Asuras (Demons) get together to churn the Ocean of milk using a Mountain as a pole resting on a large tortoise. 
 As if this is not enough, they use a large Serpent King as their churning string. (It's breathtakingly stunning imagination - one day, Bollywood may show this on screen)
 
