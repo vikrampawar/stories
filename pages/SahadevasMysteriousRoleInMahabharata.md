@@ -32,6 +32,15 @@ Just then, a fox enters and tries to disturb him and put him off from eating.
 
 Anyhow, he manages to eat the dead man's toe and as soon as he eats it, he instantly recognizes the fox as Lord Krishna, and he also instantly becomes aware of Lord Krishna's cunning plans that will lead to Kurukshetra.
 
-The fox turns into Lord Krishna and he tells Sahadeva, you've eaten your fathers toe and have become as powerful as me, you know everything that's happened, that's happening and that will happen. But, this knowledge is useless. The moment you reveal this knowledge to others in anyway or use this knowledge to change the future, your head will break into thousand pieces (In Telugu - 'Nee tala veyyi chekkalavvu gaka'). Sahadeva feeling helpless that he is going to be unwilling participant of Kurukshetra curses Lord Krishna that if anything happens to any of his family of five brothers, Lord Krishna's head will break into thousand pieces. So, Lord Krishna has no option but to protect each member of the family throughout Mahabharata.
+The fox turns into Lord Krishna and he tells Sahadeva, you've eaten your fathers toe and have become as powerful as me, you know everything that's happened, that's happening and that will happen. 
+But, this knowledge is useless. 
 
-Although fascinating to a nine year old mind because of the gory details, to an adult mind, this story tells of the importance of every single individual. We may not be a Dharmaraj, Bhima or an Arjuna, but we are still equally powerful in our own individual way - we just have to realize it. To fulfil our own part we have to be strong in mind and body, and for that we have to do regular exercise. And one good way to do that is to take up the #150DayChallenge :D..
+The moment you reveal this knowledge to others in anyway or use this knowledge to change the future, your head will break into thousand pieces (In Telugu - 'Nee tala veyyi chekkalavvu gaka'). 
+
+Sahadeva feeling helpless that he is going to be unwilling participant of Kurukshetra curses Lord Krishna that if anything happens to any of his family of five brothers, Lord Krishna's head will break into thousand pieces. 
+
+So, Lord Krishna has no option but to protect each member of the family throughout Mahabharata.
+
+Although fascinating to a nine year old mind because of the gory details, to an adult mind, this story tells of the importance of every single individual. 
+
+We may not be a Dharmaraj, Bhima or an Arjuna, but we are still equally powerful in our own individual way - we just have to realize it. 
