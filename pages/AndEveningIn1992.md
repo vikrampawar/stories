@@ -56,6 +56,6 @@ And when all hope was lost, and only 30 more minutes were left, and I was totall
 But, I had only 29 more minutes left. 
 I went at a furious pace at that problem, and then the next, and so on for every single minute of those 29 minutes, writing constantly with my head down, until the last minute as the examiner angrily snatched the paper from my unwilling hands, and tearing a bit of it in the process.
 
-May be, he was the same man who gave me the strange looks in the morning as I entered 15 minutes late to the first test.
+Maybe, he was the same man who gave me the strange looks in the morning as I entered 15 minutes late to the first test.
 
 >[Home](../README.md)
