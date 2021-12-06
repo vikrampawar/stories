@@ -1,3 +1,5 @@
+>[Home](../README.md)
+
 # Sahadeva's mysterious role in Mahabharata (Original 2014)
 
 
@@ -44,3 +46,5 @@ So, Lord Krishna has no option but to protect each member of the family througho
 Although fascinating to a nine year old mind because of the gory details, to an adult mind, this story tells of the importance of every single individual. 
 
 We may not be a Dharmaraj, Bhima or an Arjuna, but we are still equally powerful in our own individual way - we just have to realize it. 
+
+>[Home](../README.md)
