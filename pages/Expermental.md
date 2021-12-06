@@ -14,7 +14,6 @@
 - [The irani cafe chai](TheIraniChai.md) [2021]
 - [An evening in 1992](AndEveningIn1992.md) [2014]
 - [Rajendra Prasad and one outrageous and endearing movie](RajendraPrasadAndOneOutrageousButEndearingMovie.md) [2014]
-- [Run milestones in Cricket](RunMilestonesInCricket.md) [2014]
 - [One Diwali Celebration](OneDiwaliCelebration.md) [2014]
 - [Expert car parking in Europe](ExpertCarParkingInEurope.md) [2019]
 
@@ -26,7 +25,10 @@
 
 ## Running
 
-- [Run number 50 on the 200th Day]
+- [Run milestones in Cricket](RunMilestonesInCricket.md) [2014]
+- [Run number 50 on the 200th Day](RunNumber50OnThe200thDay.md) [2014]
+- [Run number 100](RunNumber100.md) [2014]
+- [Running at speed](RunningAtSpeed.md) [2014]
 ## Telugu
 - [ Premante Enti Parody](PremanteEntiParody.md) [Dec 2021]
 
