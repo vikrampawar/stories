@@ -1,6 +1,6 @@
 >[Home](../README.md)
 
-# Milestones in Cricket (Original 2014)
+# Run Milestones in Cricket (Original 2014)
 
 In cricket, 50 runs is a decent milestone and all batsmen routinely make 50, so it doesn't feel like an achievement worth celebrating. 
 
