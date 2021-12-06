@@ -33,6 +33,6 @@ Dejected yet again, he says to himself, if my love rejects me because of these n
 
 Perhaps when he reaches the utmost of his sanity, the heroine accepts him and they somehow wriggle out of the situation to give a happy ending to the movie.
 
-Now, you don't have to bite your nails, move to the edge of your seats or do whatever it is you do in these situations. Although I sometimes prone to make extreme strides of imagination to bind anything with #150DayChallenge, however unsuccessfully, I will give it a miss today... So you can relax :D..
+Now, you don't have to bite your nails, move to the edge of your seats or do whatever it is you do in these situations. 
 
-However, I can say with hundred percent certainty, that you won't get any magical powers if you do #150DayChallenge. But, you may unlock some critical faculties which probably have no other way to come out.
+
