@@ -25,7 +25,7 @@ One would say the odours hitting the nostrils are divine, provided they are will
 If fact, those that are keen accumulators of the knowledge about the bovine excreta would say that it was delivered not so long ago.
 It still retained the sweetness that's characteristic of the dump that's fresh and not yet been caked by the careless park walkers.
 
-That is to say that it's as pleasant as it could be in mid May evening in Dyrabad.
+That is to say that it's as pleasant as it could be in mid may evening in Dyrabad.
 
 But anybody looking at Takkarram Kirrakke and Andagamma Adaragottu sitting so far apart would know that they are both impervious to these pleasant surroundings.
 
@@ -46,7 +46,7 @@ If Takkarram were in any normal situation, he would have seen that Chikka has be
 
 The reader might be wondering where this grass mound has come from.
 It's come from the barren patch in front of Takkarram.
-Lest the reader attributes the barren patch to the carelessness of the aforementioned park keepers, who are, in addition to being fearsome, are excellent keepers of the grass in Dassamia park. If they had any inkling that this patch was freshly created in the such a short span of time they would descend upon the culprits with their legendary ferocity.
+Lest the reader attributes the barren patch to the carelessness of the aforementioned park keepers, who are, in addition to being fearsome, are excellent keepers of the grass in Dassamia park. If they had any inkling that this patch was freshly created in such a short span of time they would descend upon the culprits with their legendary ferocity.
 
 The patch wasn't there when Takkarram and Andagamma arrived a few minutes earlier.
 It's formed because Takkarram has been picking one strand at a time from that spot and putting it on his right side.
