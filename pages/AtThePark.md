@@ -10,7 +10,7 @@ When we say people, it's mostly couples strewn all around the park.
 One would be amazed to see how innovative the positions are that these couples find to sit in the park.
 Hands and legs intertwined, making it hard to see where one ends and the other begins.
 The one objective seems to be that no air should pass between the couple.
-All of the couples seem to be be intent on this idea.
+All of the couples seem to be intent on this idea.
 
 The keener of the eye would see that there is one couple sitting in the park that seems to be violating this rule.
 They've sat so far apart that it is a borderline case to say that they've sat together.

@@ -31,7 +31,7 @@ Or it may have been the undigested portion of the onion rings that I had before 
 
 I'm afraid, I do not know.
 
-In any case, I answered in the affirmative without so much as trace of irritation in my voice.
+In any case, I answered in the affirmative without so much as a trace of irritation in my voice.
 
 If I was in the usual not so sunny mood, I would have barked at him, why a man would say, or indeed woman, when you think of it, say, he, or she, or they, wanted a 27 inch model, if he, again, or she, or they, indeed, did not mean a 27 inch model?
 
