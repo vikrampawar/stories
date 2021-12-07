@@ -130,6 +130,9 @@ Chikka being quite accustomed to this reaction from his would-be buyers, was rea
 
 He has realised at at very young age that there's a strange power in his eyes. Any marketing department of a thriving charity concern would pick him up instantly for their commercials. If commercials is the right word, or should I say an ad. Commercial has a pretty uncharitable financial sense to it.
 Let's settle with ad. I'm referring to those that suddenly jump on you out of nowhere when you are cosily watching your favorite serial or a match. Here you are in your happy little world, having pleasant time, and then you are confronted with a pair of haunting eyes, the accompanying booming voice making you feel like a cold hearted person that has no right to the comforts you are having unless you donate sizable portion of your funds to the organisation that is doing all it can to save all those that possess such haunting eyes.
+One may wonder, what if they actually succeeded?
+Where will they get their models from?
+We, digress again.
 
 Chikka started turning the dial on his eyes such that the very eyes that were sparkling with naughtiness at his customers inability to speak to his beloved earlier, suddenly took a turn to look a bit haunting as if he has not had food the whole day.
 
@@ -137,7 +140,7 @@ Takkaram felt compelled to react. He said, 'but, but, look at those ghastly thin
 
 'Sir, I are you saying the goat droppings?'
 
-'I was thinking of something else, but yes, your description suits it better', Takkarram said, with questioning look on his face as if to ask if they are actually that.
+'I was thinking of something else, but yes, your description suits it better', Takkarram said, with a questioning look on his face as if to ask if they are actually that.
 
 Chikka exploded into a laughing fit. It's remarkable how quickly his emotions change. His laugh was a series of halts and explosions of noises that could well have come out of an excited, smaller than usual pony, that started out being a donkey, but at the last moment shifted course to become a pony. This was accompanied by his slapping his right thigh with his hand as if to control himself.
 
