@@ -104,9 +104,9 @@ There looking at him intently, he found Chikka.
 
 'Sir, I wanted to help you'.
 
-'Whaaat !!??... What do you mean help, what help?'. One could sense a bit of irriation in his voice. Here he was trying to woo his beloved - one would imagine, as in the present case, it looks quite untenable proposition -  and this little blot on the landscape coming in his way putting spanner in the works.
+'Whaaat !!??... What do you mean help, what help?'. One could sense a bit of irritation in his voice. Here he was trying to woo his beloved - one would imagine, as in the present case, it looks quite untenable proposition -  and this little blot on the landscape coming in his way putting spanner in the works.
 
-'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keeper after what you've done.', looking at the mass of grass from which he emerged.
+'Sir, I noticed you were having trouble calling mam. I've been watching you for a while and guessed that you were going to pick up more grass before calling mam. I thought I'll speed up the process and also save some grass, I was getting drowned in it. I don't think you'd like facing the park keepers after what you've done.', looking at the mass of grass from which he emerged.
 
 At which point, lot of questions flitted through Takkarram's mind fighting for attention, and in a separate region of his brain, even several emotions were in a stuggle of their own to bubble up on top.  
 
@@ -191,9 +191,9 @@ As soon as the little master disappeared, Andagamma started laughing uncontrolla
 
 Takkaram had a confused look in his face, there was a bit of excitement also mixed in with the confusion. He was finding Andagamma's laughter delightful as he normally finds. It had that silvery quality that made it seem heavenly to him. But, he wasn't sure if she was laughing at him.
 
-Andagamma seemed to be in her own world. Now, she was holding her tummy and laughing. When she got a bit of control over herself, she held Takkarram's face in her two hands, her face shining with the energy expended in her laughter, which it looked like she was still smiling, looked into his eyes and said, 'You fool. Were you going adopt that little devil, just to appease me?.' 
+Andagamma seemed to be in her own world. Now, she was holding her tummy and laughing. When she got a bit of control over herself, she held Takkarram's face in her two hands, her face shining with the energy expended in her laughter, her lips pursed in a smile, looked into his eyes and said, 'You fool. Were you going adopt that little devil, just to appease me?.' 
 
-Takkaram wanted to say many things, but he did not want to spoil the moment. He had no idea how the situation turned so favorably for him, and knowing that he can't control it, just decided to go with the flow and say nothing.  He just kept looking at her wide eyes which were just a few moments earlier reminding him of the ferocious deity, lost all of that ferocity, and seemed filled with all positive emotions. The tears in the eyes from all the laughter before giving them a certain undescribable charm. The faint rays of sun who was ready to say goodbye taking it a notch higher.
+Takkarram wanted to say many things, but he did not want to spoil the moment. He had no idea how the situation turned so favorably for him, and knowing that he can't control it, just decided to go with the flow and say nothing.  He just kept looking at her wide eyes which were just a few moments earlier reminding him of the ferocious deity, lost all of that ferocity, and seemed filled with all positive emotions. The tears in the eyes from all the laughter before giving them a certain undescribable charm. The faint rays of sun who was ready to say goodbye taking it a notch higher.
 
 Takkarram, his spine tingling with expectation said 'Andu.'
 
